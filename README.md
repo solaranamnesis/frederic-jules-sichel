@@ -2,7 +2,7 @@
 
 Public Domain Works by Frédéric Jules Sichel (1802-1868).
 
-## Nouveau Recueil de Dierres sigillaires d'Oculistes romains pour la Plupart inédites.
+## Nouveau Recueil de Pierres sigillaires d'Oculistes romains pour la Plupart inédites.
 
 French - Plain Text  
 French - PDF | Biolinum | Atkinson | Cursive | Auriocus | Kerkis | Artemisia | DnD | Custom  
