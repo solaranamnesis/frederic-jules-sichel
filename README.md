@@ -8,3 +8,17 @@ French - Plain Text
 French - PDF | Biolinum | Atkinson | Cursive | Auriocus | Kerkis | Artemisia | DnD | Custom  
 English - Plain Text  
 English - PDF  
+
+## Nouveau Recueil de Dierres sigillaires d'Oculistes romains pour la Plupart inédites.
+
+French - Plain Text  
+French - PDF | Biolinum | Atkinson | Cursive | Auriocus | Kerkis | Artemisia | DnD | Custom  
+English - Plain Text  
+English - PDF  
+
+## Guide de la Chasse des Hyménoptères.
+
+French - Plain Text  
+French - PDF | Biolinum | Atkinson | Cursive | Auriocus | Kerkis | Artemisia | DnD | Custom  
+English - Plain Text  
+English - PDF  
