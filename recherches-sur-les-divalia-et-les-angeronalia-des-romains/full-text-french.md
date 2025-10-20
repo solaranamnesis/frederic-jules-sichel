@@ -6,15 +6,19 @@
 
 ## Par M. J. Sichel.
 
-### Extrait de _Revue archéologique_ 1846, 2e et 3e Année.
+### Extrait de _Revue Archéologique_ 1846, 2e et 3e Année.
 
 ## Paris.
 
 ---
 
+# Premier Partie.
+
+# Deuxième Partie.
+
 ---
 
-# Premier Mémoire.
+# Premier Partie.
 
 [Fig.]()
 
@@ -60,6 +64,6 @@ Mais souvent même on rencontre cette étoile dans des circonstances qui ne font
 
 Pour le cachet qui fait le sujet de cette dissertation, on pourrait donc, à la rigueur, se borner à voir dans l'étoile celle de Vénus, et l'explication que nous avons donnée de l'ensemble n'en souffrirait pas. Mais elle est insuffisante, par les motifs que nous exposerons dans la prochaine livraison.
 
-# 
+# Deuxième Partie.
 
 ...
