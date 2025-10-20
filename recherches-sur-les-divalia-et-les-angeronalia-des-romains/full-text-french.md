@@ -74,6 +74,8 @@ Pour le cachet qui fait le sujet de cette dissertation, on pourrait donc, à la 
 
 ## Deuxième Article.
 
+Loin d'être une étoile simple, comme dans les monnaies et les médailles, celle qui se trouve au-dessus de l'autel, et qui est très-bien gravée comme le reste du cachet de Sépullius, présente une particularité remarquable, particularité qui ne se rencontre pas dans l'effigie habituelle d'Hesperus. Entre les branches de cet astre et dans son diamètre vertical, on voit des points semblables à des étincelles (_lemnisci_ dans le passage de Servius que nous citerons). Ils sont assez régulièrement rangés en forme de rayons qui s'étendent de haut en bas, et dans la partie supérieure leur nombre est plus grand. On ne peut méconnaître que cette modification donne à cette figure l'aspect d'une comète. Cette circonstance m'a conduit à penser qu'il s'agit dans l'espèce de la comète de César ; ce qui tendrait à prouver, qu'après la mort du rival de Pompée on a confondu en un seul le culte de Divus Julius et de Venus Genitrix, à laquelle il avait le premier consacré un temple. Les anciens auteurs, dont nous faisons suivre les passages, racontent que, lors des jeux publics célébrés par Auguste en l'honneur de Venus Genitrix et de César placé au rang des dieux, une comète apparut dans le ciel, et que par cette raison l'image de César fut représentée avec une étoile au-dessus de la tête.
+
 ...
 
 # Deuxième Partie.
