@@ -12,11 +12,11 @@
 
 ---
 
-# [Premier Partie.]()
+# [Premier Partie.](#premier-partie-1)
 
-# [Deuxième Partie.]()
+# [Deuxième Partie.](#deuxième-partie-1)
 
-# [Troisième Partie.]()
+# [Troisième Partie.](#troisième-partie-1)
 
 ---
 
