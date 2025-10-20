@@ -16,6 +16,8 @@
 
 # [Deuxième Partie.]()
 
+# [Troisième Partie.]()
+
 ---
 
 # Premier Partie.
@@ -65,5 +67,41 @@ Mais souvent même on rencontre cette étoile dans des circonstances qui ne font
 Pour le cachet qui fait le sujet de cette dissertation, on pourrait donc, à la rigueur, se borner à voir dans l'étoile celle de Vénus, et l'explication que nous avons donnée de l'ensemble n'en souffrirait pas. Mais elle est insuffisante, par les motifs que nous exposerons dans la prochaine livraison.
 
 # Deuxième Partie.
+
+Nos considérations sur les Divalia ayant pris beaucoup plus de développement que nous ne pensions, et la _Revue Archéologique_, par sa nature et son plan, ne comportant pas l'insertion textuelle d'un travail aussi étendu, nous avons, quant à présent, jugé nécessaire d'en supprimer la seconde partie que nous nous réservons de publier plus tard. Mais, afin que dans la suite de ce mémoire certains passages ne soient pas inintelligibles pour nos lecteurs, nous croyons utile de leur présenter, sous forme de sommaires, les idées principales contenues dans les chapitres de cette deuxième partie.
+
+1\. Il existait à Rome un _culte secret_ et très-ancien _de Vénus_, probablement institué par Énée, culte dont les _Pénates_, c'est-a-dire les _Dioscures_, semblent avoir été l'un des symboles. Dans les premiers temps de Rome, le nom de Vénus n'existant point encore, cette déesse était adorée sous les noms de _Volupia_ et d'_Angerona_.
+
+2\. Cette Vénus, d'origine orientale, avait de nombreux rapports avec _Cybèle_. Comme celle-ci, elle désignait les grandes forces de la nature, et surtout la reproduction.
+
+3\. On l'avait figurée primitivement avec les attributs des deux sexes. C'est cette _Vénus Androgyne_ qui, dans le principe, a été la _divinité tutélaire de Rome_, représentée aussi sous la forme d'Angeronia.
+
+4\. Plus tard elle reçut le nom de _Venus Genitrix_, dans le double sens de _Mère de la race Énéenne_ (_Genitrix Æneadum_*), et de déesse de la procréation (γενέτειρα, γενέσεως ἔφορος*). Jules César le premier lui érigea un temple.
+
+*) _Lucret._ 1., 1.
+
+*) _Schol. Aristophan. Nub._ v. 52.
+
+5\. En instituant ce culte, il est probable que César agissait au moins autant par des calculs d'intérêt dynastique que par un sentiment religieux.
+
+6\. _Venus Genitrix_ et _Venus Victrix_ sont identiques.
+
+7\. L'une et l'autre ne sont également rien autre chose que la divinité tutélaire de Rome (_Dea Roma, Genius Urbis, Genius Populi Romani, Angerona_), dont le nom véritable et primitif était tenu dans le secret le plus inviolable. Le sexe même de cette divinité protectrice était entouré de mystère, et pouvait l'être d'autant plus facilement qu'elle avait été d'abord adorée sous une forme bisexuelle.
+
+8\. Le culte de Vénus étant la religion de l'État, et devant néanmoins rester secret quant à son caractère essentiel, les images des autres dieux, sur les monuments, et particulièrement sur les monnaies, étaient substituées tour à tour à celle de Vénus, quand elle figurait comme déesse tutélaire de Rome. On conservait l'un des attributs de Vénus, et l'on y ajoutait ceux de la divinité qui servait à la déguiser.
+
+9\. Parmi les attributs de Vénus, plusieurs, tels que les étoiles, le caducée, la corne d'abondance, le serpent, etc., n'ont pas été jusqu'ici pris en considération comme ils devaient l'être.
+
+10\. Pour représenter certains personnages allégoriques ou certaines divinités d'un ordre moins élevé, telles que _Fortuna, Salus, Clementia, Concordia, Libertas_, les Romains empruntaient également les traits et les attributs de Vénus.
+
+11\. Les _Triumviri_ et _Quatuorviri monetales_ semblent avoir été choisis parmi les _Flamines divales_ ou prêtres de Vénus-Angerona, afin qu'ils pussent surveiller, conformément aux règles établies pour l'observation de ce grand secret d'État, l'apposition sur les monnaies des images et des symboles des dieux. P. Sépullius Macer était investi de ces fonctions sous César.
+
+12\. Après Vénus, Mars semble avoir joué le rôle le plus considérable dans la religion primitive des Romains.
+
+13\. Le culte de César déifié fut plus tard adjoint à celui de Venus Genitrix.
+
+# Troisième Partie.
+
+Jusqu'ici, tout en nous éclairant des documents fournis par la numismatique dans les recherches que nous avons dû faire sur le culte de Vénus et de la déesse de Rome, nous n'avons pas voulu expliquer Angerone elle-même autrement que par les traditions puisées dans les anciens classiques. Nous nous sommes abstenu à dessein de la considérer d'après les monuments de l'art antique, et voici la raison qui nous a fait agir ainsi. Il était infiniment probable que leur explication resterait difficile, tant que nous ne serions pas parvenu à éclaircir les obscurités qui entourent les opinions et les assertions des anciens sur cette déesse. Maintenant que le mot de cette énigme est trouvé, et qu'avec son aide nous sommes arrivé à un résultat que nous nous croyons en droit de considérer comme positif, examinons les œuvres d'art où les anciens ont représenté Angerone, et voyons si leur étude, jointe à ce qu'ont dit à leur occasion les archéologues qui les ont décrites, détruit ou confirme l'opinion que nous avons émise. Voyons si l'explication de ces mêmes figures peut à son tour recevoir quelque lumière des recherches que nous avons faites sur cette mystérieuse divinité.
 
 ...
