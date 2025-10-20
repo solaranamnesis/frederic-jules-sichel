@@ -6,7 +6,7 @@
 
 ## Par M. J. Sichel.
 
-### Extrait de _Revue archéologique_ 1846 et 1847.
+### Extrait de _Revue archéologique_ 1846, 2e et 3e Année.
 
 ## Paris.
 
