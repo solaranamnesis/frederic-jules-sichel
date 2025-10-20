@@ -12,7 +12,7 @@
 
 ---
 
-# [Première Partie.](#premiere-partie-1)
+# [Première Partie.](#première-partie-1)
 
 # [Deuxième Partie.](#deuxième-partie-1)
 
