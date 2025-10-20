@@ -12,9 +12,9 @@
 
 ---
 
-# Premier Partie.
+# [Premier Partie.]()
 
-# Deuxième Partie.
+# [Deuxième Partie.]()
 
 ---
 
