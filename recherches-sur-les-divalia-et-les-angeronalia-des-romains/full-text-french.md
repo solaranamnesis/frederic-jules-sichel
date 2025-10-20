@@ -12,7 +12,7 @@
 
 ---
 
-# [Premier Partie.](#premier-partie-1)
+# [Première Partie.](#premiere-partie-1)
 
 # [Deuxième Partie.](#deuxième-partie-1)
 
@@ -20,7 +20,7 @@
 
 ---
 
-# Premier Partie.
+# Première Partie.
 
 [Fig.]()
 
