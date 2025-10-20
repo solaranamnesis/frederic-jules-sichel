@@ -42,7 +42,7 @@ Varro, De lingua lat., l. 4., p. 46, ed Bip. « Intra muros altera porta Romanul
 
 _Id., ib._, l. 5., p. 58. « Angeronalia ab Angerona, cui sacrificium fit in curia. »
 
-Orell. Inscrr. 2., p. 410. _Verrii Flacci fasti prænestini_, Decemb. 21. Feriæ divales Angeroniæ, cui sacrificium in ara Volupiæ fit. »
+Orell. Inscrr. 2., p. 410. _Verrii Flacci fasti prænestini_, Decemb. 21. « Feriæ divales Angeroniæ, cui sacrificium in ara Volupiæ fit. »
 
 A des passages aussi explicites, il me reste peu de chose à ajouter. _Angerona_, bien loin de venir d'_angere_, d'_angina_ ou de toute autre racine latine, me semble d'origine asiatique. C'est probablement le nom de quelque Vénus orientale, comme _l'Astarte_ ou _l'Astaroth_ des Syriens ou la Mylitta des Assyriens. Déesse tutélaire de la race énéenne, elle est probablement venue avec elle lors de son émigration après le sac de Troie. Peut-être même sont-ce là ces dieux Pénates (_cape sacra manu, patriosque Penates_, Æn., 2., 717 ; _sacra suosque tibi commendat Troja Penates_, ib. 293 ; _Dî, precor, Æneæ comites_, Ov. Métam. 15., 861) qu'Énée, avant de songer à emporter toute autre chose, a si pieusement sauvés du pillage et de l'incendie. Il était on ne peut plus naturel qu'Énée et ses descendants fissent présider cette divinité de leur patrie (_patriique Penates_, Æn., _loc. cit._ ; _Dî patrii indigetes_ Georg. 1., 498) à la fondation et aux destinées de Rome.
 
