@@ -203,4 +203,22 @@ _Monuments représentant Angerone sans autres caractères ni attributs._
 
 *) Voy. ci-dessous, sect. 1., §§ 3 et 4 ; sect. 2., § 4.
 
+Nous joignons ici la partie essentielle de la description que Caylus donne de cette gravure.* « On pourrait regarder cette figure comme l'emblème d'un silence particulier qu'on avait intérêt de recommander ; ce pouvait être le silence sur les affaires domestiques, secret si nécessaire et si peu pratiqué dans les familles. ... La gorge de la déesse est assez ferme pour faire l'office de clou et soutenir le mantelet qui recouvre la tunique. ... La tunique ou le vêtement de dessous n'est retenu par aucune espèce de ceinture ; cette circonstance peut être nécessaire à remarquer, d'autant qu'elle n'est pas ordinaire. ... La coiffure, parfaitement conservée, n'est pas commune pour le temps auquel l'ouvrage a été fait ; elle conserve une sorte de rapport avec celle de plusieurs figures étrusques des plus anciennes.
+
+*) _Recueil d'Antiquités_, t. 4., pl. 72, fig. 2, p. 229.
+
+« Hauteur six pouces quatre lignes. »
+
+Tous ces détails, indiqués par le savant dont nous venons de citer le nom, sont aussi rendus, et même plus exactement, dans la gravure de Montfaucon.* Il est probable que Caylus a fait l'acquisition de cette statuette qui, d'après Montfaucon, appartenait d'abord au cabinet du père Albert. C'est sans doute à cause du renversement que l'identité n'a pas été reconnue par un observateur aussi exercé que Caylus ; peut être aussi a-t-il été induit en erreur pour avoir fait la comparaison seulement d'après son dessin, dans lequel les dimensions de la statuette sont diminuées de moitié environ, de sorte que les détails, ceux de la chevelure surtout, disparaissent à cause de la petitesse. Distrait d'ailleurs qu'il était par tant de recherches, il ne portait qu'un médiocre intérêt à cette Angerone, dont le sujet, comme nous verrons plus loin,* lui paraissait inintelligible ; il n'y a donc rien d'étonnant qu'il ne se soit pas aperçu de la négligence du graveur de Montfaucon. Quand bien même notre remarque sur l'identité de ces deux figurines serait erronée, elles ne représenteraient pas moins le même sujet.
+
+*) Voy. notre pl. 51, fig. 5.
+
+*) Sect. 2., § 4.
+
+La ressemblance avec une Vénus ici est encore frappante. L'absence de la ceinture, signalée par Caylus, caractérise principalement cette déesse. C'est en partie à cause de cela que César, affichant avec ostentation sa dévotion pour Vénus, son aïeule,* et voulant même faire croire à une certaine ressemblance entre elle et lui,* affectait de se ceindre négligemment,* ce qui tui valut, de la part de Sylla, l'épithète de _garçon à la ceinture mal serrée_.*
+
+*) _Dio Cass._ 43., 43. Τὸ ὅλον τῇ γε Ἀφροδίτῃ πᾶς ἀνέκειτο.
+
+§ 3\. (Pl. 51, fig. 2.) _Caylus_* a figuré deux autres statuettes d'Angerona. Toutes les deux ressemblent à la première que nous avons décrite (§ 1.), en ce qu'elles sont entièrement nues, et que l'une de leurs mains affecte une position particulière. Dans la figure 3., la plus grande ressemblance avec une Vénus se manifeste par la nudité complète, les belles formes du torse et des seins, et la chevelure abondante, dont l'arrangement est à peu près le même que dans l'image de Vénus sur les médailles romaines. Les trois premiers doigts de la main gauche sont appliqués sur la bouche, tandis que la main droite se trouve posée, comme on peut le voir dans la gravure,* et comme dit Caylus, « sur la partie diamétralement opposée à la bouche. » Quant aux extrémités inférieures, elles manquent à partir du tiers moyen des cuisses. Voici les passages essentiels du texte de Caylus : « Ce fragment de la même divinité prouve que l'usage en était fréquent chez les Romains, et que l'attitude qu'on lui a donnée n'était pas absolument arbitraire. La figure précédente était l'image d'un enfant ; celle-ci représente une jeune personne. Le dessin ne laisse aucun doute sur les rapports de ces deux figures. L'exacte nudité n'est pas une de leurs moindres singularités. Heureusement, ce qui manque à ce petit monument n'est pas essentiel pour l'explication. ... Ce bronze n'a plus qu'un pouce et demi de hauteur. »
+
 ...
