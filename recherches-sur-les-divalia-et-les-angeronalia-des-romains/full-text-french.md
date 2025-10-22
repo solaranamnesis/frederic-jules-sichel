@@ -221,4 +221,104 @@ La ressemblance avec une Vénus ici est encore frappante. L'absence de la ceintu
 
 § 3\. (Pl. 51, fig. 2.) _Caylus_* a figuré deux autres statuettes d'Angerona. Toutes les deux ressemblent à la première que nous avons décrite (§ 1.), en ce qu'elles sont entièrement nues, et que l'une de leurs mains affecte une position particulière. Dans la figure 3., la plus grande ressemblance avec une Vénus se manifeste par la nudité complète, les belles formes du torse et des seins, et la chevelure abondante, dont l'arrangement est à peu près le même que dans l'image de Vénus sur les médailles romaines. Les trois premiers doigts de la main gauche sont appliqués sur la bouche, tandis que la main droite se trouve posée, comme on peut le voir dans la gravure,* et comme dit Caylus, « sur la partie diamétralement opposée à la bouche. » Quant aux extrémités inférieures, elles manquent à partir du tiers moyen des cuisses. Voici les passages essentiels du texte de Caylus : « Ce fragment de la même divinité prouve que l'usage en était fréquent chez les Romains, et que l'attitude qu'on lui a donnée n'était pas absolument arbitraire. La figure précédente était l'image d'un enfant ; celle-ci représente une jeune personne. Le dessin ne laisse aucun doute sur les rapports de ces deux figures. L'exacte nudité n'est pas une de leurs moindres singularités. Heureusement, ce qui manque à ce petit monument n'est pas essentiel pour l'explication. ... Ce bronze n'a plus qu'un pouce et demi de hauteur. »
 
+§ 3\. 1. _Recueil d'Antiquités_, t. 2., pl. 79, fig. 1., 2., et 3., p. 281 et suiv.
+
+*) Voy. notre pl. 51, fig. 2.
+
+La position de la main droite de cette figure et de la suivante, de même que celle du bras gauche de la statue décrite dans le § 1., ne me semble pas être l'effet du hasard ou du caprice. Puisque nous voyons cette attitude dans plusieurs monuments découverts en des localités différentes et à des époques diverses, elle doit avoir une signification cachée. Vénus, en Orient, a été figurée primitivement hermaphroditique, sans doute pour indiquer, que l'amour physique n'est licite que par le congrès des deux sexes, et lorsqu'il a pour but les saintes fonctions de la propagation de l'espèce.* Cette image androgyne était la réprobation sensible des débauches contre nature, si répandues dans l'Orient dès les temps les plus reculés, et châtiées dans l'Écriture sainte par l'extermination de Sodome et de Gomorrhe. Voici pourquoi le [GREEK], et non le phallus, est figuré à côté de cette Vénus bisexuelle sur un monument curieux appartenant actuellement à la Bibliothèque du Roi, et décrit par M. Lajard, son premier propriétaire, dans un intéressant et savant Mémoire.* C'est par la même raison, il est du moins permis de le supposer, qu'Angeronia, formée de cette Vénus androgyne, laisse exposé aux regards ce que cherche à couvrir pudiquement Aphrodite Anadyomène, et cache entièrement avec une de ses mains la partie opposée, comme pour désigner en elle la véritable partie honteuse. Aujourd'hui encore, par des motifs semblables, les Turcs vraiment religieux mettent la pudeur à ne pas se déshabiller facilement les uns devant les autres ; le même sentiment leur inspire une répugnance invincible pour les clystères.*
+
+*) Comparez sous ce rapport l'important passage de Codinus, cité dans la note 4 du § 1. de la sect. 3.
+
+§ 4\. Le sujet des gravures 1 et 2 de la même planche de Caylus,* par sa nudité complète, son attitude, la position de la main droite, par l'application des trois premiers doigts de la main gauche sur la bouche, et par la manière dont la chevelure, très-épaisse, est arrangée, offre la plus parfaite ressemblance avec celle que nous venons de décrire. Elle n'en diffère que par les particularités suivantes : c'est la figure d'une toute jeune fille, ce qui la rend semblable à l'Angeronia représentée par Goropius.* La main gauche est appuyée sur la bouche avec un effort plus marqué dans cette statuette que dans la précédente. « La belière, » dit Caylus, « qui la met au rang des amulettes, subsiste dans son entier, et la conservation totale du morceau ne peut être plus complète. Cette figure a été trouvée, il y a peu de temps, dans les débris d'une tour bâtie, à ce que l'on prétend, par Caligula, à l'entrée du port de Boulogne-sur-Mer. Quelques autres monuments de cette espèce pourraient autoriser le sentiment de ceux qui regardent cette ville comme l'ancien port Icius.
+
+*) _Nouvelles Annales_, publiées par la section française de l'Institut archéologique, t. 1. Paris, 1836, p. 161 et suiv. F. Lajard, _Mém. sur la Vénus orientale androgyne_. J'avais déjà réuni,de nombreux passages sur cette déesse fort importante pour mon sujet, lorsque j'eus connaissance de ce beau trayail qui me permit de me dispenser de la continuation de ces recherches.
+
+*) A. Brayer, _Neuf années à Constantinople_. Paris, 1836, in-8, t. 1., p. 183 _et passim_.
+
+§ 4\. 1. _Recueil_, t. 2., pl. 79.
+
+*) Voy. sect. 2., § 1., et pl. 51, fig. 13.
+
+« Ce petit monument est une représentation d'Angerona, divinité romaine, qui tire son origine de l'Harpocrate égyptien. Macrobe fait mention de la fête qui se célébrait à l'honneur de cette déesse. Il semble cependant qu'il ait moins en vue une divinité positive qu'une allégorie. Mais ce qu'il dit ensuite du silence que les Romains gardaient par superstition, touchant la déesse tutélaire de leur ville, dont ils défendaient qu'on proférât le nom, caractèrise davantage Angerona. Il paraît même qu'elle était l'emblème et la figure de ce secret.* ... Montfaucon a fait graver trois images de cette divinité, différentes des miennes ; elles ont toutes un doigt sur la bouche, mais l'autre main est toujours dans une attitude qui paraît arbitraire. Elle n'est pas placée, ainsi que dans les deux figures de cette planche, sur la partie diamétralement opposée à la bouche.
+
+« Cette figure est fondue en or massif. _Elle est d'un pouce de hauteur, et du poids de cent vingt et un grains._ » 
+
+*) On a vu, § 2., n. 3, que dans le t. 4. Caylus est revenu sur cette opinion fort juste ou l'a oubliée.
+
+§ 5\. M. Bernard _Quaranta_,* dont la science archéologique déplore la mort récente, reproduit aussi un tableau d'Angerone, trouvé à Pompéi dans la maison de Castor et Pollux. Il le décrit avec soin, et après avoir réuni un grand nombre de passages des anciens sur l'avantage quil y a à savoir se taire à propos, il déclare que, s'il n'est pas certain que cette figure soit celle d'Angerone, au moins doit-elle représenter le Silence. Selon nous, on ne peut y méconnaître Angeronia, dont l'extérieur rappelle encore ici celui de Vénus. C'est une femme assise, aux formes accomplies ; sa draperie, riche et élégante, laisse à découvert les seins, les épaules, la plus grande partie de la poitrine et les bras, qui portent des bracelets. De la tête il n'existe plus que le menton et la lèvre inférieure, au devant de laquelle est placé le doigt indicateur de la main droite, dans la position que nous connaissons déjà, mais sans être en contact immédiat avec la bouche, comme dans les autres monuments que nous avons décrits.
+
+§ 5\. 1. _Real Museo Borbonico_, vol. 12., t. 19. Pittura rinvenuta in Pompei nella casa di Castore e di Polluce.
+
+Sur la même planche, au-dessous de cette déesse, est figurée une truie couchée sur le côté gauche, avec trois pattes liées, et n'ayant de libre que le pied droit de derrière. A gauche de cette truie sont appuyées contre le mur deux palmes placées debout, disposées en croix, et nouées ensemble par le milieu. D'après M. Quaranta, ce dernier tableau ne fait pas partie du tableau supérieur ; mais nous sommes porté à croire que l'un a été le pendant de l'autre, ou en a formé une espèce de piédestal, comme appartenant au même sujet. S'ils n'avaient pas été découverts en même temps et l'un plus ou moins rapproché de l'autre, comment se ferait-il que, seuls parmi tant de tableaux qu'on a rencontrés dans la maison de Castor et Pollux, ils eussent été réunis sur la même planche ?
+
+Dans une note fort étendue, M. Quaranta indique les différents usages qu'avait la truie dans les sacrifices de Rome et du Latium en général. Mais ce qu'il ignore, c'est que, seule de toutes les déesses, cette Aphrodite orientale, d'où dérive Angerone, acceptait pour victime la truie, qui lui était consacrée. Plusieurs auteurs l'affirment positivement. Denys le Périégète rapporte qu'à Aspendos, ville de Pamphylie, sur l'Eurymédon, Dioné était vénérée par des sacrifices de truies.* Callimaque, d'après Strabon,* dit qu'Aphrodite Castnienne permet seule qi'on lui sacrifie des porcs. Le nom de cette Vénus vient du mont Castnion, près d'Aspendos.* Si l'on songe que Lycophron, en désignant Énée comme l'aïeul du peuple romain, l'appelle le fils de cette Aphrodite Castnienne et Choeras,* on reconnaît clairement ici Vénus l'Énéade, qui est devenue Angerone. A Argos aussi, d'après Callimaque ou Zénodote, on sacrifiait des truies à Aphrodite.* C'est d'Aspendos sans doute, colonie d'Argos,* que les sacrifices de cette espèce avaient été introduits dans la métropole, où ils reçurent le nom d'_Hystéria_. A Cypre encore, où le culte de cette Vénus asiatique avait pénétré de bonne heure, le pore lui était consacré, d'après un vers d'Antiphane conservé par Athénée.* Dans cette même île, ces animaux immondes avaient même le privilége de servir aux oracles.* S'ils occupaient une place aussi marquée dans les rites sacrés d'une déesse que l'antiquité devait regarder comme ayant en aversion tout ce qui est antipathique aux idées d'élégance et de grâce dont elle était la personnification, ce n'est sans doute point parce que dans le principe on les tenait en honheur, mais parce qu'on voulait en faire l'objet d'une vengeance particulière et incessante, en expiation de la mort d'Adonis et d'Attys ; car ce dernier, également tué par un sanglier, d'après quelques mythes,* est probablement identique avec le premier, comme la Vénus des contrées de l'Asie Mineure se confond elle-même avec la Mère idéenne (_Mater Idæa_), c'est-à-dire avec Cybèle. Attys était le favori de celle-ci, comme Adonis était celui d'Aphrodite. Par le même sentiment de haine et d'horreur pour l'animal qui fit périr l'objet de sa tendre affection, cette déesse, chez d'autres peuples,* à Sicyone par exemple, repoussait le pourceau comme victime. Il n'est pas impossible non plus que le nom d'Aphrodite Chœras ([GREEK]) et le sacrifice du porc ([GREEK]) aient été perpétués chez les Grecs par l'effet d'une de ces allusions qui leur étaient si familières, le mot [GREEK] étant en même temps l'un des synonymes du [GREEK].
+
+*) _Dionys. Perieg._ v. 852. [GREEK]. _Schol._ [GREEK].
+
+*) _Strab._ 9., p. 438. [GREEK].
+
+*) _Steph. Byz._, v. [GREEK].
+
+*) _Lycophr._ 1234. [GREEK].
+
+*) _Athenæus_ 3., p. 95, f. [GREEK].
+
+*) _Strab._ 14., p. 667, _D._ [GREEK].
+
+*) _Athen._ loc. cit. [GREEK].
+
+*) _Pausan._ 6., c. 2., 2. [GREEK].
+
+*) _Pausan._ 7., c. 17., 5. [GREEK]. Aussi voit-on un sanglier offert en sacrifice à Cybèle chez Maffei (_Gemm. antich._ 2., 38).
+
+*) _Pausan._ 2., c. 10., 4. [GREEK].
+
+A ce qui vient d'être dit, il faut ajouter le rôle important que joue, dans la fondation par Énée de la première ville sur la terre du Latium,* la truie, noire d'après Lycophron, blanche selon les autres autorités, truie que le héros troyen avait apportée d'Ilion,* et qu'il sacrifia à ses dieux paternels.* Au nombre de ces dieux devait nécessairement se trouver Vénus, sa mère. C'est du moins ce que nous avons essayé de prouver dans le premier chapitre de notre seconde partie, que le manque d'espace nous a forcé de supprimer. 
+
+*) _Dionys. Halic._ 1., 55, p. 141, lin. 3 et 11 Reisk. ; p. 143, lin. 16. _Virg. Æn._ 3., 390 ; 8., 81. _Heine Excurs._ 2. ad Æn. 7., p. 129, ed. 3.
+
+*) _Varro_ de L. L., 4., p. 40. Bipont. Oppidum Alba a sue alba cognominatum. Hæc e nave Æneæ cum fugisset Lavinium, triginta parit porcos. _Lycophr._ v. 1256. [GREEK].
+
+*) _Dionys._ 1., 57, p. 144, lin. 2. [GREEK]. Le mot [GREEK] ne désigne pas simplement un _sacrifice_ (_immolavit_ dans la traduction latine) mais encore une _consécration_. Aussi Denys ajoute t-il qu'au même endroit une chapelle fut érigée, qui existait encore de son temps, et dont l'accés, comme d'un sanctuaire, était défendu aux profanes. Il s'agit encore ici d'un des mystères de Vénus Énéade.
+
+Fixons encore notre attention sur l'importance que cette même truie avait dans les cérémonies religieuses pour les traités d'alliance chez les Romains,* et sur sa représentation si fréquente sur les monnaies romaines. Parmi celles-ci, une surtout présente un grand intérêt* : sur la face, elle porte deux têtes, qui, d'après la légende (D. P. P.), sont celles des Pénates. Sur le revers se trouve la truie, placée entre les Dioscures ou les Pénates, symbole de Vénus nationale et tutélaire.*
+
+*) _Virg. Æn._ 8., 641 ; 12., 170. _Liv._ 1., 24. _Morell._ Antistia A, B ; Incert. t. 1., 3., C, D.
+
+*) Sulpicia, _Morell._ t. 2, 3. ; _Riccio_ 1. et suppl. 67. en bas. Comparez _Mor. Vetturia_, 1. et 2.
+
+*) Voy. sect. 2., § 3., après les notes 11 et 13, et le chapitre 1. de la deuxième partie.
+
+De tous ces rapprochements nous devons conclure que la truie, dans le culte secret de Vénus Énéade, était la victime de prédilection, et que, sur ce tableau, trouvé par une remarquable coïncidence dans la maison de Castor et Pollux, elle est un attribut d'Angeronia. Les palmes, placées à côté de l'animal destiné à être immolé, donnent encore plus de probabilité à cette opinion. Elles sont pour M. Quaranta des fouets (_flagelli_) formés de morceaux de bois fendus à leur extrémité. Il les croit destinés à ouvrir dans la peau de ce quadrupède quelques plaies, dans le but d'y faire mieux pénétrer les condiments ; mais il est facile de reconnaître, dans ces prétendus fouets,* les palmes de la Victoire, avec cette différence seulement, qu'au lieu d'être recourbées comme d'ordinaire, ces deux branches de palmiers sont restées droites pour pouvoir être adossées contre le mur. En les comparant, par exemple, dans tous leurs détails à une branche semblable placée dans la main de Venus Victrix chez De la Chausse,* on reconnaît parfaitement leur identité. La truie est vivante, comme le prouvent ses yeux ouverts ; elle est par conséquent destinée, non pas à être assaisonnée et servie comme mets recherché, mais bien à être sacrifiée à Angeronia Venus Victrix, déesse que nous fait connaître une intéressante pierre gravée, publiée par Caylus.* Les deux tableaux réunis se rapportent donc, selon nous, au sacrifice offert à cette divinité.
+
+*) Voir notre pl. 51, fig. 7.
+
+*) _Roman. Mus._ T. 1., sect. 2., tab. 36. Voy. notre pl. 51, fig. 9.
+
+*) Voy. sect. 2., § 4., et pl. 51, fig. 8.
+
+Nous ne pouvons nous empêcher de voir quelque analogie entre l'attitude de cette truie et celle du griffon dans une figure d'Angerone que Caylus a publiée.* Tous les deux ont un des quatre pieds détachés des autres. Peut-être même y a-t-il quelque rapport mystérieux entre cette position particulière du pied et entre celle du bras, que dans plusieurs statues Angerone tient derrière le dos ou élevé.
+
+*) Voy. sect. 2., § 4., et pl. 51, fig. 8.
+
+§ 6\. La rédaction de ce Mémoire était complétement achevée, il était même déjà imprimé en partie, quand les matériaux de ce paragraphe et des deux suivants sont venus à ma connaissance.
+
+[Fig. 3]()
+
+Une figure tout à fait semblable à celle que j'ai décrite, d'après Caylus, dans le § 4., se trouve dans le dernier ouvrage de M. l'abbé _Lanci_,* pour ainsi dire perdue au milieu des monuments arabes que ce volume représente exclusivement. M. A. de Longpérier m'en a communiqué l'Atlas. Le texte n'ayant point encore paru, il m'est impossible de dire, par quel singulier hasard cette statuette romaine fait partie d'une planche qui, comme le dit son titre : _Da profumiero e da piatto in Bologna_, contient un parfumoir et un plat conservés à Bologne, l'un et l'autre d'origine arabe. Au premier coup d'œil, cette statuette ressemble tellement à celle reproduite par Caylus que, n'ayant pas sous les yeux cette dernière, je crus tout d'abord qu'il s'agissait peut-être d'un monument identique observé par les deux antiquaires. Mais on ne peut s'arrêter un seul instant à cette idée, dès qu'on place ces deux gravures l'une à côté de l'autre. Telles sont les différences essentielles que la comparaison fait ressortir : la figurine de Caylus est un amulette, muni d'une belière, et sans piédestal ; elle tient l'index gauche seul sur les lèvres fermées, et la main droite à l'endroit indiqué. Celle de M. Lanci, au contrairé, est une statuette sans belèire, ayant les pieds plus rapprochés et posés sur une espèce de soubassement assez semblable à celui de la figurine donnée par Pignorius, et copiée par Cuper,* mais formé de deux marches carrées, qui font croire que cette figurine était plutôt destinée à être placée debout qu'à être fixée contre un mur. La chevelure, plus riche, à la jonction de l'occiput et de la nuque forme une natte semi-circulaire qui remonte à quelque distance au-dessus du front ; cette natte, qu'on ne voit pas chez Caylus, rend la tête encore plus ressemblante aux Vénus des médailles. C'est la main _gauche_ qui a la position déjà mentionnée ; l'index et le médius _droits_ ferment la bouche. Ce geste du silence, plus conforme aux autres monuments figurés d'Angérone, me fait soupçonner que peut-être, dans ceux de la planche 79 de Caylus,* le graveur a par erreur oublié de redresser le dessin. M. Lanci a représenté cette figure de deux manières : une fois, comme Caylus, en face ; une seconde fois, non pas de profil, comme l'antiquaire français, mais vue par derrière, ce qui permet de mieux juger l'arrangement des cheveux et la position de la main bien plus franchement accusée. Nous avons fait copier cette dernière gravure.
+
+*) Voir la _Revue_, t. 3., p. 221-233.
+
+*) Voy. sect. 2., § 2., pl. 51, fig. 12.
+
+*) Voy. § 3. et 4. et pl. 51, fig. 2.
+
+§ 6\. 2. Michelangelo Lanci, _Trattato delle simboliche rappresentanze arabiche._ T. 3. Parigi. 1845, in-4. maj. Atlante, tav. 6.
+
+Voici donc quatre monuments différents où cette singulière position de la main d'Angérone est répétée sans la moindre modification. On en verra encore plusieurs autres de la même nature dans le paragraphe suivant. Cela ne prouve-t-il point que cette attitude, loin d'être l'effet du hasard, doit avoir une signification symbolique, et que notre explication, quelque risquée qu'elle puisse paraître, ne manque pas d'un certain degré de probabilité ?
+
+§ 7\. M. Raoul Rochette nous a fait connaître les planches 12 et 13 de l'ouvrage de M. _Gerhard_ sur les miroirs étrusques.* Ces planches contiennent des monuments d'une très-haute importance pour la question que nous avons essayé d'élucider. Malheureusement nous n'avons ni le temps ni l'espace nécessaires pour en parler avec d'assez grands détails, et en tirer tout le parti possible. Nous nous contenterons donc de les faire connaître d'une manière succincte, en y ajoutant l'explication qui nous paraît la plus naturelle.
+
+§ 7\. 1. Ed. Gerhard, _Etruskische Spiegel_. Berlin, 1839, in-fol. p. 36 à 46. _Pennacchische Cista_.
+
 ...
