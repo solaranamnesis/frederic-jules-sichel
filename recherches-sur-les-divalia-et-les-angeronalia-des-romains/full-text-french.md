@@ -321,4 +321,262 @@ Voici donc quatre monuments différents où cette singulière position de la mai
 
 § 7\. 1. Ed. Gerhard, _Etruskische Spiegel_. Berlin, 1839, in-fol. p. 36 à 46. _Pennacchische Cista_.
 
+En 1696, dans des fouilles faites à Rome, on trouva, au milieu d'autres antiquités, une ciste mystique, fermée de toutes parts, et contenant de nombreux objets de petite dimension et de trois catégories différentes. Ceux de la première et de la troisième catégorie sont figurés dans la planche 12 de M. Gerhard. Ce sont :
+
+1° Une quantité considérable d'amulettes en pierre, dont un très-grand nombre représentent le [GREEK].
+
+2° De petites images métalliques d'animaux de tous genres, réunis par couples. Pour les grandes espèces, au moins, on pouvait manifestement distinguer que chaque couple se composait d'un mâle et d'une femelle.
+
+3° Cette catégorie, la plus remarquable de toutes, se composait de figurines humaines, également en métal, au nombre de trentesix,* toutes complétement nues, isolées, ou réunies par groupes de deux ou de trois, suivant une espèce de gradation. Nous les décrivons d'après la planche de M. Gerhard.
+
+*) _Loc. cit._ p. 38, _med._
+
+Les figures isolées représentent les unes une femme, les autres un homme. La femme a tantôt le bras droit pendant et appliqué contre la cuisse droite, et le bras gauche plié dans l'articulation du coude avec le poing fermé, attitude très-semblable à celle que nous avons déjà vue chez une statue d'Angérone,* et que nous trouverons chez une autre encore ; tantôt l'une des deux mains, la gauche ou la droite indifféremment, appliquée sur la bouche et l'autre à l'endroit déjà désigné, absolument comme les figurines que nous avons décrites dans les paragraphes 1, 3, 4 et 5 de la première section. L'homme a toujours la main droite placée sur la bouche, et le bras gauche pendant le long du côté. Une note de M. Gerhard nous apprend* qu'il existe même, parmi celles de ces images qui seraient encore actuellement conservées au Musée de Naples, une figure d'homme semblable en tout à celle de la femme, ayant une des mains posée sur la bouche, l'autre par derrière.
+
+*) Sect. 1., § 2.
+
+*) P. 45, n. 72.
+
+Les groupes de deux sont formés de la même femme et d'un homme dans une attitude un peu différente ; mais presque toujours la femme, posée sur les épaules de son compagnon, lui ferme la bouche et même les yeux avec les mains.
+
+Enfin, dans les groupes de trois, la femme, placée au milieu des deux hommes, soit debout, soit sur leurs épaules, leur ferme de la même manière la bouche et l'un des yeux.
+
+Bianchini, qui le premier a décrit ce monument excessivement curieux et important, l'a regardé comme symbolique du déluge de Deucalion. M. Gerhard le rapporte aux mystères bachiques. L'un et l'autre manquaient des éléments nécessaires pour interpréter cette représentation très-complete des mystères de Vénus Angérone bisexuelle, déesse tutélaire de la ville de Rome, où la ciste a été trouvée. C'est elle, sans aucun doute, que désigne cette femme nue. Lorsqu'elle est accompagnée d'une figure mâle placée dans la même attitude du silence, nous y voyons la déesse androgyne dans son dédoublement.* Lorsqu'elle est placée entre deux hommes, elle est entourée des Pénates ou des Castors, qui forment son symbole mystérieux, et auxquels elle ferme la bouche et les yeux, pour indiquer d'une manière sensible que rien ne doit être divulgué aux profanes ni sur la nature de la déesse, ni sur la signification véritable et profonde du symbole. Pour mieux inculquer aux yeux et à l'esprit des adeptes le devoir du silence le plus inviolable et la punition formidable qui attendait le parjure, l'un des groupes de trois figures* est placé sur le dos d'un homme mort en apparence, étendu par terre sur le ventre, et foulé aux pieds par les trois personnages qui composent ce groupe. N'y a-t-il pas, dans cette représentation terrible du châtiment, de quoi expliquer les hésitations et les craintes manifestées par Denys d'Halicarnasse et Ovide,* lorsqu'il s'agit de la véritable signification des Pénates et de la divinité que le culte de l'État défendait de nommer ? Les animaux réunis par paires sont également une allusion aux éternelles lois de la reproduction et à la pérennité des races, attributions de Vénus-Cybèle, identique, comme nous verrons,* avec Angérone. Les amulettes de la forme du [GREEK] rappellent plus positivement encore Vénus.
+
+*) Voy. sect. 3., § 1., notes 4 et 5.
+
+*) Pl. 12, fig. 10. Voy. notre pl. 51, fig. 10.
+
+*) Voy. 4e partie, § 2., notes 11 et 12.
+
+*) Voy. sect. 2., § 3.
+
+Sur la planche 13, M. Gerhard a réuni d'autres monuments semblables, pour expliquer et confirmer son opinion ; mais ils déposent encore mieux en faveur de la nôtre. Ces monuments figurés nous semblent plutôt appartenir à notre troisième groupe d'images d'Angérone devenue mâle par son dédoublement. Néanmoins, nous les conserverons ici, afin de ne pas scinder ce que M. Gerhard a réuni dans l'intention d'apporter une preuve de plus en faveur de son explication.
+
+La première de ces figures (fig. 2 à 4), qui est un amulette à belière, comme l'une des figures de Caylus,* représente, vue de face, un jeune garçon qui se comprime la bouche avec la main droite, et vue par derrière, une figure à tête de lion, se couvrant de la main droite toute la région inguinale qui correspond à la région postérieure du jeune garçon. Cette tête, que M. Gerhard regarde comme celle de Bacchus à tête de lion, peut très-bien rappeler le lion de Cybèle, déesse identique avec Angérone. Cette figure rentre dans la catégorie de celles de notre troisième section qui pouvaient donner lieu à la confusion entre Harpocrate et Angérone.
+
+*) Voy. sect. 1., § 4.
+
+Le second monument (fig. 5 à 6) représente un hermaphrodite qui porte dans la main gauche une figure semblable à celle que nous venons de décrire, c'est-à-dire un jeune garçon qui tient une des deux mains sur la bouche et l'autre du côté opposé. Vu par derrière, cet enfant porte une tête de lion ; mais les contours en étant moins bien accusés, il est plus difficile de la reconnaître. Cette figure à tête de lion se cache également toute la région inguinale avec la main.
+
+M. Gerhard* cite quelques autres figures qu'il a décrites dans le _Kunstblatt_.* Parmi elles, il y a encore une Angérone avec une main sur la bouche et l'autre sur la partie opposée, selon l'expression de Caylus. Nous n'avons pas eu le temps de nous procurer cette feuille. M. Gerhard rapporte ces figures, et même celles de Caylus que nous avons cilées dans les paragraphes 3 et 4, aux mystères de Bacchus à tête de lion.
+
+*) P. 41, n. 40-42.
+
+*) Année 1827, p. 349.
+
+§ 8\. (Pl. 51, fig. 6). _Cartari_* nous fournit encore une curieuse figure d'Angérone. Les images que cet auteur donne des divinités anciennes semblent, pour la plupart, non pas des copies fidèles ou même approximatives de monuments antiques, mais des compositions arbitraires faites seulement d'après les descriptions des anciens. Je n'aurais donc attaché nulle importance à la représentation d'Angérone que je reproduis, si elle n'offrait quelques particularités non mentionnées par les auteurs et, sous certains rapports, une grande analogie avec plusieurs monuments figurés que j'ai déjà décrits. Ces circonstances me font présumer qu'ici, par exception, Cartari a copié un monument perdu depuis, ou du moins non mentionné par aucun antiquaire.
+
+§ 8\. 1. Vincenzo Cartari, _Le imagini dei Dei degli antichi._ Ed. 2. Venetia, 1580, in-4, p. 373 et sui.
+
+La statue d'Angeronia qu'il a fait graver est conforme par sa chevelure à plusieurs de celles qui, telles que nos figures 1-3, pl. 51, ont déjà été passées en revue dans notre mémoire. La draperie et la manière dont la tunique est, pour ainsi dire, suspendue aux seins fermes et parfaitement modelés, se rapportent assez exactement à ce qui se voit dans les statues que donnent Caylus et Montfaucon.* La position des bras est, à peu près, celle que l'on trouve chez plusieurs des figurines découvertes dans la ciste mystique, et que M. Gerhard a représentées.* Toutes ces circonstances ne peuvent être fortuites ni inventées à plaisir par Cartari ; on y reconnaît manifestement une copie fidèle d'un monument dont cet antiquaire a eu connaissance.
+
+La bouche, au lieu d'être fermée avec le doigt, est entourée d'une bande et scellée d'un cachet, d'après les paroles déjà citées de Pline, Solin et Macrobe : _Ore obligato obsignatoque simulacrum habet, prænexo obsignatoque ore simulacrum habet, simulacrum ore obligato atque signato in ara Volupiæ collocatum._* Ce bandeau, après avoir ceint la bouche et la partie correspondante de la tête, s'enroule une seconde fois autour du cou, sans doute pour faire allusion aux mots _angere_ et _angina_.* Personne, parmi les anciens, n'a signalé cette bande enveloppant le cou ; il faut donc que Cartari l'ait copiée sur un monument réel. Aussi ajoute-t-il qu'il regarde cette bande qui serre le cou comme une allusion à l'épidémie d'angine, dont quelques auteurs font dériver le nom de la déesse* : ... _Il male della squilantia chiamata angina da' Latini ... E per questo forse il suo simulacro haveva_ qualche panno intorno al collo, _che gli legava anco la bocca_.
+
+Peut-être que cette curieuse statue, dans laquelle on reconnaît encore, quant au port et à la draperie, une certaine analogie avec Vénus, existe en Italie, et qu'elle se retrouvera, lorsqu'on y aura dirigé l'attention des connaisseurs.
+
+*) Voy. troisième partie, sect. 1., § 2., et notre pl. 51, fig. 5.
+
+*) Voy. le § précédent, note 3, et l'ouvrage cité de M. Gerhard, pl. 12., fig. 7.
+
+*) Voy. _Revue Archéologique_, 2e année, p. 635 et suiv.
+
+*) Voy. _Revue Archéologique_, 2e année, p. 636, deuxième alinéa, et p. 639, à la fin du premier alinéa.
+
+*) P. 374.
+
+## Deuxième Section.
+
+_Images d'Angérone figurées avec un ou plusieurs attributs de Vénus ou de Cybèle._
+
+§ 1\. (Pl. 51, fig. 13). Nous avons déjà parlé* d'une statuette de jeune fille figurant Angérone et publiée par Caylus. _Goropius_* en donne une autre que Cuper* a copiée. Ni l'un ni l'autre n'a décrit ou expliqué cette image, qu'ils regardent comme celle d'Harpocrate. Une jeune fille assise se comprime les lèvres fermées avec l'index droit. La draperie de sa tunique ressemble un peu à celle décrite dans le § 2 de la première section. Parmi ses attributs se trouvent le carquois et l'arc qui rappellent l'Amour et, indirectement, sa mère. Trois têtes de pavot, placées dans sa main gauche, indiquent la fécondité dont ils étaient le symbole,* et, par conséquent, Venus Genitrix. Dans sa chevelure, magnifique comme celle de Vénus, se trouvent, en guise de diadème, le serpent et le croissant de la lune, autres symboles de cette divinité.* Dans la même main, elle tient un flambeau allumé qui peut faire allusion à celui de l'hyménée, et qui se trouve d'ailleurs parmi les emblèmes d'Aphrodite.* Le coq, placé à côté de la déesse et sous son bras gauche, indique la virilité, dont les attributs se trouvaient également dans les images de cette antique Vénus androgyne. Le hibou, oiseau de Luna, semble encore se rapporter au croissant, et, par ce symbole, à Vénus. Le coq, le flambeau et les pavots, dans leur réunion, peuvent encore servir à rappeler qu'Aphrodite préside à l'amour légitime, dont le but est la fécondité.
+
+§ 1\. 1. Sect. 1., § 4.
+
+*) Jo. Goropii Becani _Opera_, etc. Antverp. 1580, in-fol. _Hieroglyphicor._ lib. 4., p. 49.
+
+*) Gisb. Cuperi _Harpocrates._ Traj. ad Rhen. 1687, in-4, p. 154.
+
+*) Euseb. _Præpar. Evang._ 3., 11, p. 66. Lutet. 1544, in-fol. [GREEK]. Vénus chez Maffei (_Gemm. ant. fig._ P. 3., t. 3), et Cybèle chez Montfaucon (_Ant. expl._ t. 1., première partie, pl. 3, fig. 10) tiennent chacune deux pavots à la main. Pausanias aussi (2., c. 10., 4) décrit une statue d'Aphrodite qui porte une tête de pavot dans l'une des mains.
+
+*) Lajard, _Mém. sur la Vénus Androgyne_, _loc. cit._, p. 165, 169, 177.
+
+*) Vénus porte un flambeau dans beaucoup de monuments antiques, comme, par exemple, chez Maffei, _Gemm. ant. fig._ 2., 74 ; 3., 2 et 9.
+
+On pourrait aussi voir dans le croissant, l'arc, le carquois, et même dans le flambeau, les attributs de Diane, et dans le hibou, l'emblème de Minerve. Cette image deviendrait ainsi celle d'une Angérone panthée ; sa destination serait, de mettre en évidence les rapports qui, dans le polythéisme romain, existaient entre Vénus et les différentes divinités qu'on y substituait, et qui, pour les initiés, lui étaient identiques. C'est un point sur lequel nous ne pouvons ici nous étendre davantage, attendu que nous l'avons développé dans le chapitre 8 de la deuxième partie. Nous aurons occasion de faire une remarque analogue à propos de la figure 11 qui fait le sujet du troisième paragraphe de la présente section.
+
+Quant à l'espèce de fleur de lotus que la déesse, ainsi que le hibou, porte sur la tête, et qu'on voit si souvent sur les images d'Harpocrate, elle est évidemment empruntée à ce dieu. Néanmoins, ce n'est pas là une raison suffisante pour voir, avec Goropius et Cuper, Harpocrate dans la figure qui nous occupe. Plus la signification d'Angeronia était obscure et incomprise des Romains mêmes, plus ceux-ci pouvaient la confondre avec ce dieu égyptien, alors que son culte commençait à s'étendre parmi eux, ce qui semble avoir eu lieu de bonne heure.* Il n'y a donc rien d'étonnant, s'ils ajoutaient parfois aux attributs d'Angérone quelques-uns de ceux da dieu du silence.
+
+*) Plin. _H. N._ 33., 12, ed. Bipont. Jam vero etiam Harpocratem, statuasque Ægyptiorum numinum, in digitis viri quoque portare incipiunt.
+
+Cette statuette, en bronze, semble avoir été trouvée en Italie.*
+
+*) Gorop. _loc. laud._, p. 48, _infrà._ « Priorem imaginem Pighius, curiosissimus Romæ veteris explorator, et plurimorum mihi per totum Latium priscæ memoriæ vestigiorum præmonstrator, se fatetur a Pyrrho Ligorio, Neapolitano, diligentissimo item antiquario, accepisse. » Voici à quoi se réduit, mot pour mot, tout ce que Goropius nous apprend sur cette intéressante figure.
+
+Sur un Abraxas, reproduit par Maffei,* on voit la réunion de tous les emblèmes dont l'Angeronia que nous venons de décrire est entourée ; mais il y en est encore ajouté plusieurs autres qui appartiennent également à Vénus, tels que le dauphin, le lièvre, la palme, le bélier et, en outre, une tête d'homme, que Maffei regarde, nous ne savons pourquoi, comme celle de Sérapis. L'explication de cette tête se trouvera peut-être dans le profil d'une autre tête d'homme qu'on voit tracée sur le bouclier de Venus Victrix chez Morel,* à moins que ce profil ne soit l'effet d'une erreur du graveur, puisque dans la description de cette médaille le numismatiste cité n'en fait aucune mention.
+
+*) _Gemm. ant. fig._ 2., 20.
+
+*) Julia, t. 4, 6.
+
+Un clypeus que de La Chausse* a fait graver, porte aussi une figure humaine semblable ; cet antiquaire la regarde, sans en indiquer aucune raison, comme celle de la Sagesse (_Sapientia_). Nous croyons qu'on doit bien plutôt y reconnaître la tête de Venus Victrix.
+
+*) _Roman. Museum_, t. 1., sect. 1., tab. 64.
+
+§ 2\. (Pl. 51, fig. 12). Chez _Cuper_* on voit une figure féminine qu'il ne décrit ni n'explique, et qui, par sa nudité, a les plus grands rapports avec celles dont nous avons déjà rapporté la description. De la main droite, élévée au-dessus des seins, elle tient une spatule assez longue avec laquelle elle se comprime les lèvres fermées. Dans le bras gauche elle porte une corne d'abondance, symbole que nous trouvons très-fréquemment sur les images de Vénus.* Sur la partie postérieure de la tête, elle a une espèce de coiffure qui ressemble assez à un bonnet phrygien. Cet attribut, qui, sur des monnaies,* est quelquefois placé à côté de la tête de Vénus, a été interprété d'une manière trop exclusive comme le signe de la liberté.* Toutefois, dans la gravure originale de Pignorius, fort mal dessinée à la vérité, cette coiffure ressemble davantage à la fleur de lotus, telle qu'on la voit fréquemment sur la tête d'Harpocrate. La statuette est posée sur un petit socle plus étroit en bas qu'en haut, d'après la forme duquel on peut croire qu'elle était destinée à être fixée contre un mur.
+
+§ 2\. 1. _Harpocrates._ Traj. ad Rhen. 1687, in-4, p. 28.
+
+*) Voy. sect. 2., § 3., note 20.
+
+*) Voy. sect. 2., § 3., note 13.
+
+*) Voy. sect. 2., § 3., note 18.
+
+Cuper donne de cette figure une gravure assez bien faite, et qui représente très-manifestement une femme. Il dit l'avoir empruntée à Pignorius, dans l'un des ouvrages duquel j'ai réussi, après beaucoup de recherches, à découvrir l'original* ; il est fort mal gravé, et ressemble plutôt à un homme qu'à une femme. Il en est de même de la spatule que Cuper a fait dessiner si nettement, et qu'il déclare sans hésitation pour cet instrument. Chez Pignorius, elle n'est pas reconnaissable, et pourrait fort bien être regardée comme un doigt allongé et mal fait. Comme dans le texte de Pignorius on ne trouve pas un seul mot d'explication, il serait possible que l'auteur de l'Harpocrate se fût servi d'une autre édition, dans laquelle une gravure en traits plus nets lui eût permis de reconnaître positivement des formes féminines.
+
+*) Laur. Pignorius, _Vetustissimæ tabulæ æneæ sacris Ægyptiorum simulacris cælatæ explicatio._ Venet., 1605, in-4. (Pl. 2., dernière figure.)
+
+En tout cas, dans l'état actuel des choses, j'ai dû maintenir cette image dans cette section, sauf à la reléguer dans la troisième, ou à la regarder comme un Harpocrate, si j'arrive à trouver une autre édition de Pignorius qui ne laisse plus aucun doute à ce sujet.
+
+§ 3\. (Pl. 51, fig. 11.) Cette figure a été publiée par _Maffei_,* d'après une carnéole gravée, et reproduite par _Montfaucon_.* C'est une femme qui place l'index de la main droite sur la bouche fermée ; elle est revêtue d'une tunique très-lâche et sans ceinture, absolument comme l'une de celles déjà décrites.* Maffei y voit « Harpocrate, ou bien un signe panthée. » Elle a sur la tête un boisseau et un voile ; selon l'antiquaire que nous venons de nommer, l'un désigne Osiris, et l'autre Isis. « Elle pourrait, » dit Montfaucon, « être prise pour Harpocrate, si elle n'avait pas la figure et l'habit de femme. » Tous les deux déclarent les autres emblèmes pour la massue d'Hercule et les bonnets de Castor et Pollux avec les étoiles au-dessus.
+
+§ 3\. 1. _Gemm. ant. fig._, parte 2., 1707, tav. 19.
+
+*) _Antiq. expl._, t. 1., 2e partie, pl. 213, p. 359, 4.
+
+*) Voy. ci-dessus, sect. 1., § 2., et pl. 51, fig. 5.
+
+Pour moi, je ne puis m'empêcher de voir dans cette curieuse figure une statue destinée à rappeler l'identité entre Angérone, Venus Genitrix et Cybèle. Le culte de ces deux dernières tirait également son origine de l'Asie Mineure. Ce que Maffei et Montfaucon regardent comme le _modius_, n'est peut-être qu'une forme particulière de la tour qui, avec le voile, forme l'attribut principal de Cybèle. De même que Venus Genitrix, Cybèle est le symbole de la fécondité et de la perpétuité dans la création. Aussi la nommait-on la Mère de toutes choses, _Magna Mater_. L'idée de la procréation chez elle s'étend même-aux dieux : elle est la Mère des dieux, _Mater deorum_, ce qui en fait naturellement une divinité panthée, et pourrait, à la rigueur, expliquer la multiplicité des emblèmes réunis dans cette pierre gravée. C'est sans doute à cause de son identité avec la déesse, sons la protection directe de laquelle Rome et ses destinées étaient placées, que les Romains attachaient un si grand prix à la possession de son image conservée à Pessinunte, et que plus tard ils la confondirent dans le culte mystérieux d'Angeronia Venus Genitrix. C'est donc, selon nous, une Angérone-Cybèle que représente cette statue. Dans la massue, attribut ordinaire d'Hercule et devenu l'insigne de la force, nous voyons une allusion à l'étymologie grecque qu'on a assignée au nom de Rome ([GREEK], _Force_, _Puissance_), qui l'a fait traduire par _Valentia_. Nous croyons devoir lui donner le même sens dans plusieurs médailles romaines. C'est ainsi que la massue seule se trouve figurée sur le revers de monnaies de César* et de Cn. Domitius.* Cette allusion devient plus manifeste dans une autre médaille,* ou, directement au-dessous de la massue, on lit le mot _Roma_. On m'objectera peut-être que sur la face de cette dernière médaille se trouve la tête d'Hercule ; mais Hercule lui-même, par suite du polythéisme, sous lequel les Romains déguisaient Vénus, la déesse tutélaire de leur race, de leur ville et de leur empire, ne sert ici qu'à remplacer _Venus Dea Roma_. C'est ainsi qu'on voit son image sur d'autres monnaies associée tantôt à celle de la Déesse Rome,* tantôt à celles des Pénates,* symbole de Vénus.* Le mot _Roma_, regardé par les numismatistes comme indiquant tout simplement qu'une monnaie a été frappée à Rome, me semble cacher le plus souvent un sens plus profond, et désigner que le simulacre de la divinité, au-dessous duquel il se trouve, est le symbole de Venus Dea Roma. A l'appui de l'explication que nous avons donnée de la massue comme personnification de Rome et de sa déesse tutélaire, nous trouvons une pierre gravée chez Maffei,* sur laquelle est figurée une massue avec deux palmes, un caducée et deux épis, tous attributs de Vénus.
+
+*) _Cornelia_, Morell. t. 6, 4., Riccio, 9, n. 38.
+
+*) _Curtia_, M. 4., R. 2.
+
+*) _Opeimia_, M. 2., R. suppl. 2.
+
+*) _Acilia_, M. t. 1, 5., R. 5.
+
+*) _Antia_, M. 2., R. 2.
+
+*) Voy. p. 232, note 17.
+
+*) _Gemm. ant. fig._, 4., 82.
+
+Les deux emblèmes, placés au-dessus et des deux côtés de cette Angérone-Cybèle, peuvent être deux bonnets phrygiens destinés à rappeler Attys son favori, et surmontés d'une double étoile de Vénus que nous avons également vue double au-dessus de l'autel de cette déesse.* Mais rien ne s'oppose à les regarder comme les chapeaux et les étoiles des Dioscures qui, eux-mêmes, sont un des symboles du culte de Vénus. On trouve également au-dessus d'un Amour, dans une pierre gravée,* dont Maffei a en vain essayé de donner l'explication, ces bonnets surmontés des étoiles ; preuve nouvelle qu'il existait une étroite corrélation entre les Dioscures et la déesse de l'amour, et que c'est elle que cette coiffure doit désigner dans la figure d'Angérone dont il s'agit ici.
+
+*) Voy. la _Revue Archéologique_, 2e année, au bas de la p. 641. Ce que nous avons dit, dans ce passage cité, des deux étoiles de Vénus et, à la même page, de ses deux colombes placées sur une monnaie de Marc-Antoine, est confirmé par plusieurs médailles grecques de Cypre, où ces étoiles et ces oiseaux figurent au-dessus de la pierre conique qui représente symboliquement Aphrodite. Voy. Lajard, _Mém. sur la Vénus androgyne_, _loc. cit._, p. 203, et pl. 4., n°s 10, 11 et 12.
+
+*) Maffei, _Gemm. ant. fig._, 3., 14.
+
+Je ne doute nullement que les deux étoiles de Vénus, mentionnées dans la note 11 de la page précédente, ne soient une des causes principales pour laquelle les Dioscures ont été si souvent substitués à Vénus dans le système monétaire et religieux des Romains, et pour laquelle ici nous trouvons leurs attributs sur l'image d'Angérone-Cybèle. Cela était d'autant plus naturel que le _pileus_ de Castor et Pollux ressemble parfaitement au bonnet phrygien qui désignait primitivement Attys, chéri par Cybèle. Ce bonnet phrygien a été conservé, sur certaines médailles romaines, à Venus Genitrix, à cause des rapports qui existent entre elle et Adonis d'un côté, et Cybèle et Attys d'autre part. Bien que le _pileus_ soit aussi un emblème de la liberté, les numismatistes, selon moi, n'ont pas tout à fait raison de lui donner cette signification constante et exclusive. C'est ainsi, par exemple, qu'un denier romain, fort curieux et inexpliqué jusqu'ici,* porte une tête absolument semblable à celle de Venus Genitrix placée sur d'autres monnaies, et ayant à côté d'elle le bonnet phrygien. Sur le revers on voit, dans une couronne de myrte et sous les deux bonnets étoilés, un enfant ailé monté sur une chèvre. L'exergue est occupé par un thyrse. Dans cette tête, regardée jusqu'ici comme celle de la Liberté, je crois reconnaître Venus Genitrix, synonyme de Cybèle dans la religion intime des Romains. Il me semble impossible d'expliquer les emblèmes du revers autrement que par une allusion aux mystères de Vénus, dans lesquels les Dioscures étaient le symbole visible de cette déesse. Celle-ci est encore révélée ici par son fils, l'Amour, par le myrte, son arbre sacré, par le thyrse, qu'elle porte également dans d'autres monuments de l'antiquité,* et, enfin, par la chèvre. Cette dernière est celle de la nymphe Amalthea* ; elle-même est appelée Amalthea par quelques auteurs.* Elle a fourni la corne d'abondance, un des attributs les plus fréquents de Vénus.* Dans une gravure sur pierre, publiée par Maffei,* qu'il regarde comme représentant la Liberté, nous croyons aussi reconnaître une Venus Victrix caractérisée par le sceptre, le bonnet phrygien et la palme. Comment, en effet, appliquer ce dernier emblème à la Liberté ? Quant aux rapports mystérieux qui existaient entre les Pénates, c'est-à-dire entre Castor et Pollux, comme symbole, et Vénus, déesse tutélaire de Rome, nous les avons exposés tout au long dans le chapitre 1 de la seconde partie de ce Mémoire. Ce que nous venons de dire nous semble suffisant pour expliquer la figure d'Angérone-Cybèle, publiée par Maffei, et pour attirer l'attention des archéologues sur ce point capital de la religion des Romains.
+
+*) Morell. _Fonteia_, D.
+
+*) Maffei, _Gemm. ant. fig._, 3., 8.
+
+*) Ovid. _Fast._ 5., 115-128.
+
+*) Apollodor. 1., 1, s. 7. Hygin. _Astron._ 1., 13, p. 448, ed. Staveren. Muncker sur Hygin, p. 300, 12.
+
+*) Voy. note 20.
+
+*) _Gemm. ant. fig._, 3., 66.
+
+Au sujet de la multiplicité des emblèmes, on peut encore comparer deux statues représentées par de La Chausse,* que cet auteur considère comme des signes panthées, opinion analogue à celle de Maffei sur la figure d'Angérone que nous venons de décrire. Pour nous, ces images, sous le rapport des attributs essentiels (les ailes, le casque, la cuirasse), ne sont que des figures de _Venus Victrix_, désignée en même temps comme _Venus Felix_ par la corne d'abondance et le gouvernail. La corne d'abondance, symbole de la fécondité, est fréquemment attribuée à Vénus, même quand elle prend la forme de Venus Victrix.* Le carquois de l'Amour est encore ajouté pour désigner Aphrodite. Si, dans l'une de ces deux figures, il fallait absolument reconnaître les attributs de quelques autres dieux, cela s'expliquerait par l'analogie qui existe entre Venus Genitrix et la Mère des dieux, et entre celle-ci et Isis ; car il ne faut pas oublier la grande extension que l'adoration des divinités égyptiennes avait prise chez les Romains à une certaine époque, ce qui leur fit souvent réunir les emblèmes de ces dieux à ceux de leurs dieux indigènes, comme nous le verrons encore pour Harpocrate et Angérone. Lorsqu'il s'agissait d'Angérone ou de la Déesse Rome, une pareille confusion devait être d'autant plus facile de la part des Romains que leurs prêtres avaient pris à tâche d'envelopper de l'obscurité la plus profonde le culte de ces divinités, et qu'en effet, dans leur polythéisme systématique, Isis elle-même* était la personnification des grandes forces créatrices de la nature et regardée comme une divinité analogue à Vénus et a Cybèle.
+
+*) _Roman. Mus._, sect. 2., tab. 31 et 32.
+
+*) Comparez entre elles, et avec Maffei _Gemm. ant. fig._ 2., 75, les médailles suivantes : _Carisia_, Morell. 6. ; Riccio, 1, 2. _Considia_, R. 9. _Julia_, M. t. 1, 8. ; R. 6. M. t. 1, 7., N ; R. 7 ; M. t. 4, A ; M. t. 7, H ; R. 75. _Luria_, M. 3. ; R. 2. _Mœcilia_, M. B, C ; R. 1. _Mussidia_, M. 6., F, G ; R. 1. _Oppia_, M. 1., A, B ; R. 2. (Ici Venus Victrix, en place de la corne d'abondance, tient une patère remplie de fruits, comme Isis chez Jac. Oisel. _Thesaur. numism._, t. 47, n. 5.) _Sempronia_, M. 5. ; R. 9. _Tullia_, R. 3.
+
+La coiffure de cette Angérone que nous avons mise sous les yeux de nos lecteurs (fig. 11) pourrait, à la rigueur, être aussi bien celle d'Isis que celle de Cybèle. D'après ce qui vient d'être dit, cela ne produirait pas un changement bien esséntiel dans le sens intime de cette figure.
+
+*) Voy. sect. 3., § 1., n. 6, et 4e partie, § 2., n. 9 b. Comparez p. 333, à la fin de la n. 20.
+
+§ 4\. (Pl. 51, fig. 8.) Nous empruntons encore cette figure à Caylus,* qui l'accompagne des réflexions suivantes : « Cette gravure, sur une cornaline, se ressent encore beaucoup des impressions égyptiennes ; mais tout est énigme dans le sujet : la principale figure représente une femme drapée, et qui porte de très-grandes ailes. Les Romains ont été dans l'habitude de représenter ainsi la Victoire ; d'ailleurs, je ne connais point d'autre divinité que l'on puisse soupçonner : il est vrai que le silence ne fut jamais un attribut de cette déesse légère et bruyante ; cependant elle a le doigt sur la bouche, et semble recommander le secret à un Amour assis par terre et sur le premier plan, dont la disposition est absolument celle d'un captif. Il paraît appuyé contre un piédestal qui porte la représentation d'un griffon ailé, auquel la Victoire offre ou laisse prendre trois palmes qu'elle tient dans la main qui n'est point employée à caractériser le secret.
+
+§ 4\. 2. _Recueil_, t. 6., p. 262 ; pl. 81, fig. 2.
+
+« _On avoue, sans rougir, qu'on ne comprend rien à une pareille composition._ »
+
+« La gravure de cette pierre est médiocre dans toutes ses parties ; la bizarrerie du sujet peut seule la rendre recommandable, »
+
+L'aveu que fait ici un archéologue si renommé montre combien dans la science de l'antiquité, ainsi que dans toutes les autres, lorsqu'il s'agit d'un point particulier, tout l'édifice peut pendant longtemps être mal établi à défaut de la clef de voûte. Cette clef de voûte dans l'histoire du culte d'Angérone, c'est son identité avec Volupia, c'est-à-dire Vénus. Avant que ce point ne fût élucidé, l'explication des monuments était impossible, et, comme si le silence recommandé par Angérone elle-même dit se prolonger indéfiniment, son culte restait obscur même pour les plus profonds connaisseurs de l'antiquité. Au contraire, cette identité une fois trouvée, les ténèbres qui entourent cette déesse se dissipent. La figure dont il s'agit ici est, de la manière la plus évidente, une Angérone victorieuse ou Venus Victrix Angeronia. Son attitude est absolument la même que dans les autres statues ; seulement, ici c'est l'index gauche qui clôt la bouche, la main droite tenant les palmes, attributs de la Victoire. Ses formes parfaites, les beaux contours de son sein, la draperie de sa tunique, sa ceinture lâche, sa belle chevelure, arrangée comme dans les autres figures et statues de Vénus et d'Angerona, et, pour ne point laisser de doute, l'Amour assis à terre devant elle : tout enfin indique Vénus. Les ailes, attribut, comme les palmes, de Venus Victrix, sont plus grandes que ne le sont d'ordinaire les ailes de la Victoire, sans doute pour faire allusion à Vénus Uranie. L'Amour aussi, peut-être par la même raison, a des ailes plus grandes que de coutume. Par ses mains liées derrière le dos, on a voulu probablement indiquer qu'on doit proscrire la légèreté et l'imprudence dans l'accomplissement des rites sacrés ; que la raison, au contraire, doit dominer le sentiment et réprimer les mouvements de la passion, lorsqu'il s'agit d'une religion sur laquelle repose le salut de l'État. On peut donc reconnaître encore dans cette attitude de l'Amour une allusion au secret exigé dans le culte de Vénus-Angérone. Enfin, cette déesse elle-même est placée devant un griffon ailé posé sur un piédestal. Cet animal, absolument dans la même attitude que nous lui voyons ici, se trouve figuré sur quelques monuments, avec la patte qui est élevée reposant sur une roue.* En tant que symbole du soleil, il concourt ici à désigner d'une manière mystérieuse Vénus Uranie, parmi les attributions et les emblèmes de laquelle se trouvait cet astre.*
+
+*) Maffei, _Gemm. ant. fig._, 2., 15, et surtout De la Chausse, _Roman. Mus._ T. 1., sect. 5., tab. 8.
+
+*) Lajard, _Mém. sur la Vénus Androgyne_, loc. cit., p. 177.
+
+## Troisième Section.
+
+_Monuments figurés, où Angerona revêt la forme mâle._
+
+§ 1\. Nous nous sommes déjà expliqué d'une manière générale sur les monuments compris dans cette section.* La déesse tutélaire de Rome était primitivement cette Vénus orientale bisexuelle dont parlent plusieurs auteurs. De là vient l'inscription du bouclier consacré qui existait au Capitole : _Genio urbis Romæ, sive mas, sive femina_.* De là également l'interdiction, mentionnée par Plutarque, de la recherche du sexe de cette divinité.* Le dédoublement de cette Aphrodite androgyne ([GREEK])* a produit un dieu Vénus mâle.* Cette circonstance explique pourquoi Angérone prend quelquefois l'extérieur d'un jeune garçon ou celui d'un homme. Parmi les figures qui jusqu'à présent ont été classées parmi celles d'Harpocrate, nous en trouyons plusieurs que nous ne pouvons nous empêcher de regarder comme des Angérones.
+
+§ 1\. 1. Voy. p. 224, troisième alinéa.
+
+Dans les images et statues où Angérone, selon nous, revêt la forme d'un enfant mâle ou d'un homme, il est vrai qu'il y a très-souvent un mélange d'attributs qui rappellent Harpocrate ; mais il n'y a rien là qui doive nous étonner. De même qu'Angérone ordonne le silence sur le secret de sa conformité avec Vénus, Harpocrate le commande en sa qualité de dépositaire et de gardien des mystères d'Isis et d'Osiris. Il est permis en même temps de rappeler l'analogie qui existait, surtout d'après un passage de Varron,* entre Vénus orientale (Astarté), Cybèle et Isis, déesses qui toutes étaient la personnification des grandes forces de la nature, et, plus particulièrement, de la reproduction. Il n'y a donc rien de surprenant dans l'analogie qu'on trouve entre Harpocrate et Angérone, et dans la similitude d'une partie de leurs attributs.
+
+Cette similitude devait être augmentée forcément, et même avec 
+l'intention calculée d'entourer de ténèbres la véritable signification 
+d'Angérone, dans les siècles où, par suite du polythéisme romain, 
+le culte des divinités égyptiennes fut mêlé à celui des dieux du 
+Latinm et de la Grèce. On trouvera donc moins étrange de ma 
+
+*) Serv. _ad Æn._ 2., 351.
+
+*) Voy. _Revue Archéologique_, 2e année, p. 636.
+
+*) Joh. Lydus, _de Mensib._, ed. Rœther, p. 25. Codinus (_Selecta de originib. constantinopolitanis._ Aurel. Allobrog. 1607, in-8, p. 45) dit avoir vu à Constantinople la statue de l'Aphrodite bisexuelle. Il ajoute expressément que cette Vénus, révérée par les Romains, était figurée avec les attributs des deux sexes, pour indiquer qu'elle présidait à la reproduction de l'espèce ([GREEK]), et qu'Énée avait érigé en l'honneur de sa mère un simulacre ayant cette forme ([GREEK]).
+
+*) Voy. troisième partie, p. 224, note 1.
+
+*) _De L. L._ 4., p. 17, ed. Bipont. Principes dei, Cœlum et Terra ; hi dei iidem, qui in Ægypto Serapis et Isis, et st [etsi ? ] Harpocrates digito [silentium ? ] significat ; qui sunt Taautes et Astarte apud Phœnicas, ut iidem principes in Latio Saturnus et Ops.
+
+part une opinion qui peut d'abord sembler paradoxale, et qui, cependant, découle naturellement de la corrélation entre la divinité tutélaire de Rome et la Vénus orientale androgyne, dont le dédoublement a produit une Vénus mâle. Je crois donc qu'il existait une Angérone mâle, d'après le même principe qui fit représenter aux Cypriotes leur Aphrodite avec une barbe et d'autres attributs de la virilité. Nous avons d'ailleurs vu que l'image d'une Angérone mâle a été trouyée dans la ciste mystique de Pennacchi.*
+
+*) Voy. p. 323, n. 4.
+
+§ 2\. Cuper* a figuré un jeune garçon ailé et presque nu, ayant le bras gauche appuyé sur une massue entourée d'un serpent, près de laquelle se trouvent deux oiseaux. L'index de sa main droite est appliqué sur les lèvres fermées. A côté de son pied droit se trouve un lièvre. Dans cet enfant, que Cuper regarde comme un Harpocrate, nous voyons Amor-Angerona, dans la massue l'allusion déjà signalée au mot Rome,* dans les oiseaux, les colombes de Vénus.
+
+§ 2\. 1. _Harpocrates_, p. 2.
+
+*) Voy. sect. 2., § 3., avant la note 4.
+
+Quant au serpent, nous avons parlé de ses rapports avec Vénus.* Le lièvre était consacré à Aphrodite,* principalement à cause de sa prodigieuse fécondité, qui avait frappé les anciens,* mais aussi, très-présumablement, à cause d'une fable bizarre qui, chez eux, s'était accréditée sur cet animal.* Le mâle, dans les fonctions de la reproduction de l'espèce, passait pour remplir l'office des deux sexes : tantôt il fécondait ; tantôt, fécondé à son tour, il mettait des petits au monde. Peut-on méconnaître ici, dans la consécration à Vénus de cet animal réputé hermaphrodite, un nouvel indice d'Aphrodite androgyne ?
+
+*) Sect. 2., § 1., note 5.
+
+*) Philostrat. _Icon._ 1., 6, ed. Olear. p. 772. [GREEK]. Eustath. _ad Iliad._ A, 206, p. 87. [GREEK].
+
+*) Herodot. 3., 108, copié par Pline, _H. N._ 8., 55, § 81.
+
+*) Plin. _H. N._ 8., 55, § 81. Ælian. _de Anim. nat._ 13., 12. _Geoponic._, 19., 4. Cette erreur reposait peut-être sur la fausse interprétation et l'amplification d'une particularité observée par Aristote (_H. A._ 5., 2) : pendant l'accouplement la femelle monte quelquefois sur le mâle. Dans le siècle dernier cette fable n'avait pas encore perdu toute croyance. Voy. Niclas _sur les Géoponiques_, p. 1219.
+
+Tous les emblèmes réunis sur cette planche de Cuper se rapportent donc aussi bien, et mieux peut-être, à Vénus qu'à Harpocrate. Il en reste deux seulement capables de soulever quelques doutes, le vase que la figure porte au bras (_situla_), et le lotus placé sur sa tête. Mais nous avons aussi vu ce dernier, dans le § 1 de la seconde section, parmi les emblèmes d'une déesse, qui est très-manifestement une Angérone et ne peut être expliquée autrement. Il n'y a donc pas lieu de se laisser arrêter par quelques symboles du dieu égyptien. Les artistes romains, par des raisons que nous avons déjà développées, les ont ajoutés à ceux d'Angérone, divinité que les précautions de leurs prêtres avaient réussi à leur rendre incompréhensible, et à faire prendre souvent pour Harpocrate.
+
+§ 3\. Aux pages 32 et 118 de son ouvrage cité, Cuper a fait graver deux autres figures d'Harpocrate, presque entièrement conformes, par leurs attributs, à celle que nous venons de décrire. Il doit être facile d'en réunir d'autres semblables, mais nous nous en dispenserons ; car nous ne croyons pas que cela puisse répandre aucune nouvelle lumière sur notre sujet.
+
+La ressemblance entre les symboles de Vénus et d'Harpocrate n'a d'ailleurs rien qui doive surprendre, ce dernier étant regardé comme la personnification du soleil, astre qui, nous l'avons déjà dit,* est dans les attributions de Vénus-Uranie. Celle-ci, en outre, a été regardée par les Romains comme analogue à l'Isis* des Égyptiens, dont les mystères étaient confiés à la garde d'Harpocrate.
+
+§ 3\. 1. Sect. 2., § 4., fin.
+
+*) Varro, _loc. cit._ Voy. ci-dessus, p. 366, n. 6.
+
+§ 4\. 1. Il y a peu de jours, on a découvert, dans le cabinet des médailles de la Bibliothèque royale, une figurine d'Angérone, en tous points semblable à celles qui sont décrites dans les § 3 et 4 de la 1re section, et représentées pl. 51, fig. 2.
+
+§ 4\. 1. Ce paragraphe et les deux suivants complètent la première section dont ils forment les § 9. à 11.
+
+La coiffure, la nudité complète, les formes du torse, la position des mains, et surtout celle de la main gauche, tout enfin rend l'identité complète. Ici encore la main gauche est placée par derrière et la main droite sur la bouche ; malheureusement il ne reste plus qu'une partie de cette main qui, toutefois, est dans une attitude telle que l'on peut parfaitement reconnaître de quelle déesse il s'agit. Cette figurine est en argent ; il y a entre elle et les autres monuments du même ordre une différence marquée, quant à leur destination probable. Ce n'est ni un amulette, ni une statuette à piédestal libre. Le petit socle sur lequel elle repose est soudé à la partie supérieure d'une sorte de style également en argent, qui va en s'amincissant de haut en bas et se termine en pointe à son extrémité inférieure, ce qui fait croire qu'il s'agit ici d'une épingle à cheveux. C'est aussi parmi les épingles à cheveux que cet objet d'art se trouve classé dans la collection.
+
+[Fig.]()
+
+§ 5\. Parmi ces épingles, il y en a une autre en cuivre, dont la partie supérieure porte une figurine très-fruste, mais dans laquelle je crois reconnaître une Angérone mâle, ou plutôt une statuette tout à fait semblable à celle décrite, dans le § 7 de la 1re section,* par M. Gerhard, qui la rapporte au culte de Bacchus à tête de lion.
+
+Le côté antérieur de cette figurine me semble présenter les particularités suivantes, que, néanmoins, vu son état de dégradation, je n'ose donner comme positives. La tête, sur laquelle la main droite est appliquée, est celle d'un lion ; les parties génitales indiquent un homme ; l'avant-bras gauche occupe la partie postérieure et inférieure du corps.
+
+Le dos et le derrière de la tête sont tellement altérés qu'on ne saurait juger si primitivement une seconde figure était adossée à celle que je viens de décrire ; mais je penche pour l'affirmative.
+
+Il ne paraît pas y avoir eu de socle, et les pieds ne sont pas soudés, mais font corps avec la partie supérieure de l'épingle.
+
 ...
