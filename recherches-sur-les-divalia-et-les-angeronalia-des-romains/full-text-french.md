@@ -24,6 +24,10 @@
 
 ## [Première Section.](#première-section-1)
 
+## [Deuxième Section.]()
+
+## [Troisième Section.]()
+
 ---
 
 # Première Partie.
