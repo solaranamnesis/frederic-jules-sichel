@@ -521,11 +521,7 @@ _Monuments figurés, où Angerona revêt la forme mâle._
 
 Dans les images et statues où Angérone, selon nous, revêt la forme d'un enfant mâle ou d'un homme, il est vrai qu'il y a très-souvent un mélange d'attributs qui rappellent Harpocrate ; mais il n'y a rien là qui doive nous étonner. De même qu'Angérone ordonne le silence sur le secret de sa conformité avec Vénus, Harpocrate le commande en sa qualité de dépositaire et de gardien des mystères d'Isis et d'Osiris. Il est permis en même temps de rappeler l'analogie qui existait, surtout d'après un passage de Varron,* entre Vénus orientale (Astarté), Cybèle et Isis, déesses qui toutes étaient la personnification des grandes forces de la nature, et, plus particulièrement, de la reproduction. Il n'y a donc rien de surprenant dans l'analogie qu'on trouve entre Harpocrate et Angérone, et dans la similitude d'une partie de leurs attributs.
 
-Cette similitude devait être augmentée forcément, et même avec 
-l'intention calculée d'entourer de ténèbres la véritable signification 
-d'Angérone, dans les siècles où, par suite du polythéisme romain, 
-le culte des divinités égyptiennes fut mêlé à celui des dieux du 
-Latinm et de la Grèce. On trouvera donc moins étrange de ma 
+Cette similitude devait être augmentée forcément, et même avec l'intention calculée d'entourer de ténèbres la véritable signification d'Angérone, dans les siècles où, par suite du polythéisme romain, le culte des divinités égyptiennes fut mêlé à celui des dieux du Latinm et de la Grèce. On trouvera donc moins étrange de ma part une opinion qui peut d'abord sembler paradoxale, et qui, cependant, découle naturellement de la corrélation entre la divinité tutélaire de Rome et la Vénus orientale androgyne, dont le dédoublement a produit une Vénus mâle. Je crois donc qu'il existait une Angérone mâle, d'après le même principe qui fit représenter aux Cypriotes leur Aphrodite avec une barbe et d'autres attributs de la virilité. Nous avons d'ailleurs vu que l'image d'une Angérone mâle a été trouyée dans la ciste mystique de Pennacchi.*
 
 *) Serv. _ad Æn._ 2., 351.
 
@@ -536,8 +532,6 @@ Latinm et de la Grèce. On trouvera donc moins étrange de ma
 *) Voy. troisième partie, p. 224, note 1.
 
 *) _De L. L._ 4., p. 17, ed. Bipont. Principes dei, Cœlum et Terra ; hi dei iidem, qui in Ægypto Serapis et Isis, et st [etsi ? ] Harpocrates digito [silentium ? ] significat ; qui sunt Taautes et Astarte apud Phœnicas, ut iidem principes in Latio Saturnus et Ops.
-
-part une opinion qui peut d'abord sembler paradoxale, et qui, cependant, découle naturellement de la corrélation entre la divinité tutélaire de Rome et la Vénus orientale androgyne, dont le dédoublement a produit une Vénus mâle. Je crois donc qu'il existait une Angérone mâle, d'après le même principe qui fit représenter aux Cypriotes leur Aphrodite avec une barbe et d'autres attributs de la virilité. Nous avons d'ailleurs vu que l'image d'une Angérone mâle a été trouyée dans la ciste mystique de Pennacchi.*
 
 *) Voy. p. 323, n. 4.
 
@@ -582,5 +576,31 @@ Le côté antérieur de cette figurine me semble présenter les particularités 
 Le dos et le derrière de la tête sont tellement altérés qu'on ne saurait juger si primitivement une seconde figure était adossée à celle que je viens de décrire ; mais je penche pour l'affirmative.
 
 Il ne paraît pas y avoir eu de socle, et les pieds ne sont pas soudés, mais font corps avec la partie supérieure de l'épingle.
+
+§ 6\. M. Prévoteau, à Chartres, possède une petite statuette d'Angérone, en cuivre fortement oxidé, d'un travail assez grossier et dans un état de conservation peu satisfaisant. Elle a 47 millimètres (21 lignes) de hauteur. On l'a trouvée, vers le milieu du mois de juin de cette année, au débarcadère du chemin de fer de Chartres, avec des fragments de poteries romaines.
+
+Sa nudité complète, son attitude, sa chevelure épaisse enroulée autour de la tête, _la main droite placée sur la bouche et la gauche fortement tendue sur la fesse du même côté_, enfin, une bélière entre les épaules, lui donnent la plus parfaite ressemblance avec la statuette décrite d'après Caylus dans le § 4 de la première section.
+
+Je dois ces détails descriptifs à la bonté de MM. Cartier fils et Prévoteau, et je regrette de ne pouvoir donner un dessin de cette figurine, mais je n'en ai eu connaissance qu'au moment de la mise en pages du présent cahier de la _Revue_.
+
+Les monuments inédits décrits dans les trois derniers paragraphes viennent de nouveau à l'appui de ce que j'ai dit sur l'identité de Vénus et d'Angérone. Ils confirment l'explication que j'ai donnée de l'attitude particulière de cette dernière, et l'opinion que j'ai émise* sur l'interversion probable de la position des deux bras dans les deux gravures de Caylus.
+
+*) P. 322, note 4.
+
+## Quatrième Partie.
+
+§ 1\. _Historique._ Pour rendre ces recherches aussi complètes que possible, j'ai compulsé consciencieusement tous les auteurs qui se sont occupés de ce sujet, à l'exception d'un seul, _J. van Vliet, præside Christophoro Saxio, Diatribe de dea Angerona, Trajecti Batav._, 1766, in-4°, qu'aucune bibliothèque publique de Paris ne possède, et que je n'ai même pu jusqu'ici me procurer dans celles de la Hollande et de la Belgique. Aucun auteur, pas même ceux qui se sont spécialement occupés du culte de Vénus et des mystères, n'a soupçonné l'identité de Vénus et d'Angérone. Cette dernière n'est que très-superficiellement mentionnée dans les ouvrages les plus remarquables sur les religions des anciens. Dans la _Symbolique_ de M. Creuzer, son nom n'est prononcé qu'une seule fois et en passant.* Sainte-Croix, dans son _Traité des mystères_, n'en a point parlé du tout. M. Hartung* regarde Angeronia comme la déesse de l'anxiété, et comme un être directement opposé à Volupia. M. L. Lacroix* passe sous silence l'une et l'autre de ces divinités. Klausen et M. Gerhard, non plus que les autres archéologues, ne soupçonnèrent la véritable signification de cette divinité. Le premier dit* qu'elle est plutôt le gardien du secret du génie de la ville de Rome que ce génie lui-même. Le second,* en saisissant les indices fournis dans le passage déjà cité de Macrobe,* passage que, par erreur, il regarde comme le seul qui puisse nous éclairer sur Angérone, dit que le génie de la ville de Rome a été interprété tantôt comme Jupiter, tantôt comme Némésis-Hécate Rhamnusienne. Puis il ajoute les mots suivants, qui sont d'une grande vérité : « Privé que nous sommes des formules empruntées aux temples qui pourraient déterminer les rapports de ce démon énigmatique avec les autres diyinités romaines, nous pouvons à peine échapper à des procédés arbitraires, quand il s'agit ici d'interpréter ou de choisir. ... Mais peut-être que des comparaisons générales d'anciens mystères on pourrait faire ressortir une solution même pour cette énigme. » On voit que la solution s'est fait attendre jusqu'au moment où une de ces _formules empruntées aux temples_ nous a été révélée par le cachet de Sepullius Macer ; car cette pierre, fût-elle fausse, n'en doit pas moins avoir été composée avec des éléments puisés dans des monuments antiques se rapportant aux mystères et qui n'existent plus aujourd'hui. En faveur de cette assertion il suffit d'invoquer la conformité remarquable entre le sens des inscriptions de ce cachet et le résultat de nos recherches sur les figures d'Angérone.
+
+§ 1\. 1. Ed. 2. t. 2., p. 1004 (livre 2., ch. 9.), note 248.
+
+*) _Die Religion der Rœmer_, t. 2., p. 247.
+
+*) _La Religion des Romains._ Paris, 1846.
+
+*) Klausen, _Æneas und die Penaten_, t. 2., p. 1037. Hamburg, 1840.
+
+*) Ed. Gerhard, _Prodromus mythologischer Kunsterklærung_, p. 103, note 145. Muenchen, 1828.
+
+*) Voy. _Revue Archéologique_, 2e année, p. 636, en haut.
 
 ...
