@@ -191,13 +191,15 @@ Autant que cela se pourra, nous classerons les monuments de chaque division par 
 
 ## Première Section.
 
+[Planche 51.](https://cdn.solaranamnesis.com/JulesSichel/Venus/revue-archeologique_1846_3_orig_0223.png)
+
 _Monuments représentant Angerone sans autres caractères ni attributs._
 
 § 1\. (Pl. 51, fig. 1.) _De La Chausse_* représente la statue d'une Angerone qui place l'index de la main droite sur sa bouche fermée. C'est une figure toute nue, aux formes élégantes, dont les seins sont arrondis avec grâce, et dont la chevelure abondante est arrangée comme on le voit ordinairement sur la tête de Vénus que représentent les monnaies romaines.* Enfin, si l'on compare cette Angerone avec ces effigies de Vénus et avec ses statues, il est impossible d'en méconnaître la grande ressemblance. Elle tient derrière le dos l'avant-bras du côté gauche, probablement dans l'attitude dont il sera question à l'occasion des statuettes décrites par Caylus.* Si le bras droit, au lieu d'être élevé pour inviter au silence, avait une autre position, nul doute qu'on n'eût pris cette statue pour celle d'une Vénus. Les paroles de De la Chausse, à propos de cette figure, bien que Caylus leur ait donné des éloges, ne nous apprennent absolument rien de nouveau ni d'utile sur Angerone, qu'il regarde comme la déesse du silence, analogue à l'Harpocrate des Égyptiens. Il la déclare, toutefois, la divinité tutélaire de Rome.
 
 *) _Macrob. Saturn._ 1., 8. Apud Calvum Acterianus affirmat legendum, _Pollentemque deum Venerem_, non _deam._ Signum etiam ejus est Cypri barbatum corpore, sed veste muliebri cum sceptro ac statura [natura ? ] virili ; et putant eandem marem ac feminam esse. Aristophanes eam Ἀφρόδιτον appellat.
 
-§ 1\. 1. _M. A. Causei de La Chausse_, Romanum Museum. T. 1., sect. 2., ed. 1. (1690) et 2. (1707), tab. 28 ; ed. 3. (1746), tab. 35. Le texte et la figure sont les mêmes dans les trois éditions.
+§ 1\. [1. _M. A. Causei de La Chausse_](https://cdn.solaranamnesis.com/JulesSichel/Venus/LaChausse-romanum-1690-00022330_0258.png), Romanum Museum. T. 1., sect. 2., ed. 1. (1690) et 2. (1707), tab. 28 ; ed. 3. (1746), tab. 35. Le texte et la figure sont les mêmes dans les trois éditions.
 
 *) _Julia_ : Riccio 6, Morell. t. 1, 8. ; R. 7, M. 7., N ; R. 8, M. 5., M ; R. 10, M. t. 4, 1. ; etc. Voy. notre pl. 51, fig. 3.
 
@@ -205,7 +207,7 @@ _Monuments représentant Angerone sans autres caractères ni attributs._
 
 § 2\. (Pl. 51, fig. 5.) _Montfaucon_* a fait graver trois figures d'Angerone. La seconde est la copie de celle que donne De la Chausse, et la première seule appartient à notre première section. « Angeronie, » dit Montfaucon, « est la déesse du silence. ... Elle était donc chez les Romains ce qu'était Harpocrate chez les Égyptiens. La première, et la plus belle figure que nous en donnons, a une coiffure extraordinaire, et est habillée à peu près comme une Vesta donnée aux images de cette déesse. » Cette coiffure consiste en une espèce de bandeau roulé en spirale autour des cheveux ; elle me paraît phrygienne ou au moins orientale. Les tours de spirale commencent à quelque distance au-dessus du front, et se terminent en pointe au sommet. Cette figure est la même que celle qui a été représentée par Caylus, et dont il sera question tout à l'heure ; seulement elle est dessinée dans des proportions un peu plus grandes que les six pouces quatre lignes indiqués par cet archéologue. Cela a mis l'artiste en position de rendre plus exactement les détails, ceux de la coiffure en particulier ; mais le dessin est évidemment renversé de droite à gauche, sans doute par une erreur du graveur. La déesse a le bras gauche fléchi dans l'articulation du coude, et la main gauche, qui, par le renversement, se trouve être la main droite, est à demi fermée et appuyée sur le côté gauche. Ce qui prouve encore que la figure est renversée, c'est qu'elle tient l'index gauche sur sa bouche fermée, tandis que sur les autres monuments, par une mimique beaucoup plus naturelle, l'index de la main droite sert pour désigner le silence. Il n'y a, sous ce rapport, d'exception que dans quelques-unes des figures de Caylus,* où la main droite, présentant des palmes, ou prenant une position particulière et symbolique, ne pent en même temps faire le geste du silence.
 
-§ 2\. 1. Montfaucon, _l'Antiquité expliquée_, t. 1., 2e partie (1719), pl. 213, fig. 1, p. 359, 4.
+§ 2\. [1. Montfaucon, _l'Antiquité expliquée_](https://cdn.solaranamnesis.com/JulesSichel/Venus/b30455510_0002_orig_0371.png), t. 1., 2e partie (1719), pl. 213, fig. 1, p. 359, 4.
 
 *) Voy. ci-dessous, sect. 1., §§ 3 et 4 ; sect. 2., § 4.
 
@@ -233,7 +235,7 @@ La ressemblance avec une Vénus ici est encore frappante. L'absence de la ceintu
 
 § 3\. (Pl. 51, fig. 2.) _Caylus_* a figuré deux autres statuettes d'Angerona. Toutes les deux ressemblent à la première que nous avons décrite (§ 1.), en ce qu'elles sont entièrement nues, et que l'une de leurs mains affecte une position particulière. Dans la figure 3., la plus grande ressemblance avec une Vénus se manifeste par la nudité complète, les belles formes du torse et des seins, et la chevelure abondante, dont l'arrangement est à peu près le même que dans l'image de Vénus sur les médailles romaines. Les trois premiers doigts de la main gauche sont appliqués sur la bouche, tandis que la main droite se trouve posée, comme on peut le voir dans la gravure,* et comme dit Caylus, « sur la partie diamétralement opposée à la bouche. » Quant aux extrémités inférieures, elles manquent à partir du tiers moyen des cuisses. Voici les passages essentiels du texte de Caylus : « Ce fragment de la même divinité prouve que l'usage en était fréquent chez les Romains, et que l'attitude qu'on lui a donnée n'était pas absolument arbitraire. La figure précédente était l'image d'un enfant ; celle-ci représente une jeune personne. Le dessin ne laisse aucun doute sur les rapports de ces deux figures. L'exacte nudité n'est pas une de leurs moindres singularités. Heureusement, ce qui manque à ce petit monument n'est pas essentiel pour l'explication. ... Ce bronze n'a plus qu'un pouce et demi de hauteur. »
 
-§ 3\. 1. _Recueil d'Antiquités_, t. 2., pl. 79, fig. 1., 2., et 3., p. 281 et suiv.
+§ 3\. [1. _Recueil d'Antiquités_](https://cdn.solaranamnesis.com/JulesSichel/Venus/recueildantiquit02cayl_orig_0517.png), t. 2., pl. 79, fig. 1., 2., et 3., p. 281 et suiv.
 
 *) Voy. notre pl. 51, fig. 2.
 
@@ -247,7 +249,7 @@ La position de la main droite de cette figure et de la suivante, de même que ce
 
 *) A. Brayer, _Neuf années à Constantinople_. Paris, 1836, in-8, t. 1., p. 183 _et passim_.
 
-§ 4\. 1. _Recueil_, t. 2., pl. 79.
+§ 4\. [1. _Recueil_](https://cdn.solaranamnesis.com/JulesSichel/Venus/recueildantiquit02cayl_orig_0517.png), t. 2., pl. 79.
 
 *) Voy. sect. 2., § 1., et pl. 51, fig. 13.
 
@@ -259,7 +261,7 @@ La position de la main droite de cette figure et de la suivante, de même que ce
 
 § 5\. M. Bernard _Quaranta_,* dont la science archéologique déplore la mort récente, reproduit aussi un tableau d'Angerone, trouvé à Pompéi dans la maison de Castor et Pollux. Il le décrit avec soin, et après avoir réuni un grand nombre de passages des anciens sur l'avantage quil y a à savoir se taire à propos, il déclare que, s'il n'est pas certain que cette figure soit celle d'Angerone, au moins doit-elle représenter le Silence. Selon nous, on ne peut y méconnaître Angeronia, dont l'extérieur rappelle encore ici celui de Vénus. C'est une femme assise, aux formes accomplies ; sa draperie, riche et élégante, laisse à découvert les seins, les épaules, la plus grande partie de la poitrine et les bras, qui portent des bracelets. De la tête il n'existe plus que le menton et la lèvre inférieure, au devant de laquelle est placé le doigt indicateur de la main droite, dans la position que nous connaissons déjà, mais sans être en contact immédiat avec la bouche, comme dans les autres monuments que nous avons décrits.
 
-§ 5\. 1. _Real Museo Borbonico_, vol. 12., t. 19. Pittura rinvenuta in Pompei nella casa di Castore e di Polluce.
+§ 5\. [1. _Real Museo Borbonico_](https://cdn.solaranamnesis.com/JulesSichel/Venus/rilmuseocapitolin02mont_orig_0299.png), vol. 12., t. 19. Pittura rinvenuta in Pompei nella casa di Castore e di Polluce.
 
 Sur la même planche, au-dessous de cette déesse, est figurée une truie couchée sur le côté gauche, avec trois pattes liées, et n'ayant de libre que le pied droit de derrière. A gauche de cette truie sont appuyées contre le mur deux palmes placées debout, disposées en croix, et nouées ensemble par le milieu. D'après M. Quaranta, ce dernier tableau ne fait pas partie du tableau supérieur ; mais nous sommes porté à croire que l'un a été le pendant de l'autre, ou en a formé une espèce de piédestal, comme appartenant au même sujet. S'ils n'avaient pas été découverts en même temps et l'un plus ou moins rapproché de l'autre, comment se ferait-il que, seuls parmi tant de tableaux qu'on a rencontrés dans la maison de Castor et Pollux, ils eussent été réunis sur la même planche ?
 
@@ -325,13 +327,13 @@ Une figure tout à fait semblable à celle que j'ai décrite, d'après Caylus, d
 
 *) Voy. § 3. et 4. et pl. 51, fig. 2.
 
-§ 6\. 2. Michelangelo Lanci, _Trattato delle simboliche rappresentanze arabiche._ T. 3. Parigi. 1845, in-4. maj. Atlante, tav. 6.
+§ 6\. [2. Michelangelo Lanci](https://cdn.solaranamnesis.com/JulesSichel/Venus/v2_bsb10219187_00019_full_2623__0_default.png), _Trattato delle simboliche rappresentanze arabiche._ T. 3. Parigi. 1845, in-4. maj. Atlante, tav. 6.
 
 Voici donc quatre monuments différents où cette singulière position de la main d'Angérone est répétée sans la moindre modification. On en verra encore plusieurs autres de la même nature dans le paragraphe suivant. Cela ne prouve-t-il point que cette attitude, loin d'être l'effet du hasard, doit avoir une signification symbolique, et que notre explication, quelque risquée qu'elle puisse paraître, ne manque pas d'un certain degré de probabilité ?
 
 § 7\. M. Raoul Rochette nous a fait connaître les planches 12 et 13 de l'ouvrage de M. _Gerhard_ sur les miroirs étrusques.* Ces planches contiennent des monuments d'une très-haute importance pour la question que nous avons essayé d'élucider. Malheureusement nous n'avons ni le temps ni l'espace nécessaires pour en parler avec d'assez grands détails, et en tirer tout le parti possible. Nous nous contenterons donc de les faire connaître d'une manière succincte, en y ajoutant l'explication qui nous paraît la plus naturelle.
 
-§ 7\. 1. Ed. Gerhard, _Etruskische Spiegel_. Berlin, 1839, in-fol. p. 36 à 46. _Pennacchische Cista_.
+§ 7\. [1. Ed. Gerhard, _Etruskische Spiegel_](https://cdn.solaranamnesis.com/JulesSichel/Venus/gerhard1843bd1_0121.png). [et 2.](https://cdn.solaranamnesis.com/JulesSichel/Venus/gerhard1843bd1_0122.png) Berlin, 1839, in-fol. p. 36 à 46. _Pennacchische Cista_.
 
 En 1696, dans des fouilles faites à Rome, on trouva, au milieu d'autres antiquités, une ciste mystique, fermée de toutes parts, et contenant de nombreux objets de petite dimension et de trois catégories différentes. Ceux de la première et de la troisième catégorie sont figurés dans la planche 12 de M. Gerhard. Ce sont :
 
@@ -379,7 +381,7 @@ M. Gerhard* cite quelques autres figures qu'il a décrites dans le _Kunstblatt_.
 
 § 8\. (Pl. 51, fig. 6). _Cartari_* nous fournit encore une curieuse figure d'Angérone. Les images que cet auteur donne des divinités anciennes semblent, pour la plupart, non pas des copies fidèles ou même approximatives de monuments antiques, mais des compositions arbitraires faites seulement d'après les descriptions des anciens. Je n'aurais donc attaché nulle importance à la représentation d'Angérone que je reproduis, si elle n'offrait quelques particularités non mentionnées par les auteurs et, sous certains rapports, une grande analogie avec plusieurs monuments figurés que j'ai déjà décrits. Ces circonstances me font présumer qu'ici, par exception, Cartari a copié un monument perdu depuis, ou du moins non mentionné par aucun antiquaire.
 
-§ 8\. 1. Vincenzo Cartari, _Le imagini dei Dei degli antichi._ Ed. 2. Venetia, 1580, in-4, p. 373 et sui.
+§ 8\. [1. Vincenzo Cartari, _Le imagini dei Dei degli antichi._](https://cdn.solaranamnesis.com/JulesSichel/Venus/leimaginideglide02cart_orig_0320.png) Ed. 2. Venetia, 1580, in-4, p. 373 et sui. [Un autre Ed.](https://cdn.solaranamnesis.com/JulesSichel/Venus/leimaginideglide00cart_orig_0324.png)
 
 La statue d'Angeronia qu'il a fait graver est conforme par sa chevelure à plusieurs de celles qui, telles que nos figures 1-3, pl. 51, ont déjà été passées en revue dans notre mémoire. La draperie et la manière dont la tunique est, pour ainsi dire, suspendue aux seins fermes et parfaitement modelés, se rapportent assez exactement à ce qui se voit dans les statues que donnent Caylus et Montfaucon.* La position des bras est, à peu près, celle que l'on trouve chez plusieurs des figurines découvertes dans la ciste mystique, et que M. Gerhard a représentées.* Toutes ces circonstances ne peuvent être fortuites ni inventées à plaisir par Cartari ; on y reconnaît manifestement une copie fidèle d'un monument dont cet antiquaire a eu connaissance.
 
@@ -403,7 +405,7 @@ _Images d'Angérone figurées avec un ou plusieurs attributs de Vénus ou de Cyb
 
 § 1\. (Pl. 51, fig. 13). Nous avons déjà parlé* d'une statuette de jeune fille figurant Angérone et publiée par Caylus. _Goropius_* en donne une autre que Cuper* a copiée. Ni l'un ni l'autre n'a décrit ou expliqué cette image, qu'ils regardent comme celle d'Harpocrate. Une jeune fille assise se comprime les lèvres fermées avec l'index droit. La draperie de sa tunique ressemble un peu à celle décrite dans le § 2 de la première section. Parmi ses attributs se trouvent le carquois et l'arc qui rappellent l'Amour et, indirectement, sa mère. Trois têtes de pavot, placées dans sa main gauche, indiquent la fécondité dont ils étaient le symbole,* et, par conséquent, Venus Genitrix. Dans sa chevelure, magnifique comme celle de Vénus, se trouvent, en guise de diadème, le serpent et le croissant de la lune, autres symboles de cette divinité.* Dans la même main, elle tient un flambeau allumé qui peut faire allusion à celui de l'hyménée, et qui se trouve d'ailleurs parmi les emblèmes d'Aphrodite.* Le coq, placé à côté de la déesse et sous son bras gauche, indique la virilité, dont les attributs se trouvaient également dans les images de cette antique Vénus androgyne. Le hibou, oiseau de Luna, semble encore se rapporter au croissant, et, par ce symbole, à Vénus. Le coq, le flambeau et les pavots, dans leur réunion, peuvent encore servir à rappeler qu'Aphrodite préside à l'amour légitime, dont le but est la fécondité.
 
-§ 1\. 1. Sect. 1., § 4.
+§ 1\. [1. Sect. 1.](https://cdn.solaranamnesis.com/JulesSichel/Venus/gri_33125009318672_0338.png), § 4. [Un autre (Cuperus).](https://cdn.solaranamnesis.com/JulesSichel/Venus/cuperus-g-harpocrates-1687-RTL002156_0165.png)
 
 *) Jo. Goropii Becani _Opera_, etc. Antverp. 1580, in-fol. _Hieroglyphicor._ lib. 4., p. 49.
 
@@ -437,7 +439,7 @@ Un clypeus que de La Chausse* a fait graver, porte aussi une figure humaine semb
 
 § 2\. (Pl. 51, fig. 12). Chez _Cuper_* on voit une figure féminine qu'il ne décrit ni n'explique, et qui, par sa nudité, a les plus grands rapports avec celles dont nous avons déjà rapporté la description. De la main droite, élévée au-dessus des seins, elle tient une spatule assez longue avec laquelle elle se comprime les lèvres fermées. Dans le bras gauche elle porte une corne d'abondance, symbole que nous trouvons très-fréquemment sur les images de Vénus.* Sur la partie postérieure de la tête, elle a une espèce de coiffure qui ressemble assez à un bonnet phrygien. Cet attribut, qui, sur des monnaies,* est quelquefois placé à côté de la tête de Vénus, a été interprété d'une manière trop exclusive comme le signe de la liberté.* Toutefois, dans la gravure originale de Pignorius, fort mal dessinée à la vérité, cette coiffure ressemble davantage à la fleur de lotus, telle qu'on la voit fréquemment sur la tête d'Harpocrate. La statuette est posée sur un petit socle plus étroit en bas qu'en haut, d'après la forme duquel on peut croire qu'elle était destinée à être fixée contre un mur.
 
-§ 2\. 1. _Harpocrates._ Traj. ad Rhen. 1687, in-4, p. 28.
+§ 2\. [1. _Harpocrates._ Traj. ad Rhen.](https://cdn.solaranamnesis.com/JulesSichel/Venus/cuperus-g-harpocrates-1687-RTL002156_0039.png) 1687, in-4, p. 28.
 
 *) Voy. sect. 2., § 3., note 20.
 
@@ -447,13 +449,13 @@ Un clypeus que de La Chausse* a fait graver, porte aussi une figure humaine semb
 
 Cuper donne de cette figure une gravure assez bien faite, et qui représente très-manifestement une femme. Il dit l'avoir empruntée à Pignorius, dans l'un des ouvrages duquel j'ai réussi, après beaucoup de recherches, à découvrir l'original* ; il est fort mal gravé, et ressemble plutôt à un homme qu'à une femme. Il en est de même de la spatule que Cuper a fait dessiner si nettement, et qu'il déclare sans hésitation pour cet instrument. Chez Pignorius, elle n'est pas reconnaissable, et pourrait fort bien être regardée comme un doigt allongé et mal fait. Comme dans le texte de Pignorius on ne trouve pas un seul mot d'explication, il serait possible que l'auteur de l'Harpocrate se fût servi d'une autre édition, dans laquelle une gravure en traits plus nets lui eût permis de reconnaître positivement des formes féminines.
 
-*) Laur. Pignorius, _Vetustissimæ tabulæ æneæ sacris Ægyptiorum simulacris cælatæ explicatio._ Venet., 1605, in-4. (Pl. 2., dernière figure.)
+*) Laur. Pignorius, _Vetustissimæ tabulæ æneæ sacris Ægyptiorum simulacris cælatæ explicatio._ Venet., 1605, in-4. ([Pl. 2., dernière figure.](https://cdn.solaranamnesis.com/JulesSichel/Venus/pignoria-l-vetustissimae-1605-RTL013110_0106.png))
 
 En tout cas, dans l'état actuel des choses, j'ai dû maintenir cette image dans cette section, sauf à la reléguer dans la troisième, ou à la regarder comme un Harpocrate, si j'arrive à trouver une autre édition de Pignorius qui ne laisse plus aucun doute à ce sujet.
 
 § 3\. (Pl. 51, fig. 11.) Cette figure a été publiée par _Maffei_,* d'après une carnéole gravée, et reproduite par _Montfaucon_.* C'est une femme qui place l'index de la main droite sur la bouche fermée ; elle est revêtue d'une tunique très-lâche et sans ceinture, absolument comme l'une de celles déjà décrites.* Maffei y voit « Harpocrate, ou bien un signe panthée. » Elle a sur la tête un boisseau et un voile ; selon l'antiquaire que nous venons de nommer, l'un désigne Osiris, et l'autre Isis. « Elle pourrait, » dit Montfaucon, « être prise pour Harpocrate, si elle n'avait pas la figure et l'habit de femme. » Tous les deux déclarent les autres emblèmes pour la massue d'Hercule et les bonnets de Castor et Pollux avec les étoiles au-dessus.
 
-§ 3\. 1. _Gemm. ant. fig._, parte 2., 1707, tav. 19.
+§ 3\. [1. _Gemm. ant. fig._, parte 2.](https://cdn.solaranamnesis.com/JulesSichel/Venus/gemmeantichefigu02maff_orig_0045.png), 1707, tav. 19.
 
 *) _Antiq. expl._, t. 1., 2e partie, pl. 213, p. 359, 4.
 
@@ -507,7 +509,7 @@ La coiffure de cette Angérone que nous avons mise sous les yeux de nos lecteurs
 
 § 4\. (Pl. 51, fig. 8.) Nous empruntons encore cette figure à Caylus,* qui l'accompagne des réflexions suivantes : « Cette gravure, sur une cornaline, se ressent encore beaucoup des impressions égyptiennes ; mais tout est énigme dans le sujet : la principale figure représente une femme drapée, et qui porte de très-grandes ailes. Les Romains ont été dans l'habitude de représenter ainsi la Victoire ; d'ailleurs, je ne connais point d'autre divinité que l'on puisse soupçonner : il est vrai que le silence ne fut jamais un attribut de cette déesse légère et bruyante ; cependant elle a le doigt sur la bouche, et semble recommander le secret à un Amour assis par terre et sur le premier plan, dont la disposition est absolument celle d'un captif. Il paraît appuyé contre un piédestal qui porte la représentation d'un griffon ailé, auquel la Victoire offre ou laisse prendre trois palmes qu'elle tient dans la main qui n'est point employée à caractériser le secret.
 
-§ 4\. 2. _Recueil_, t. 6., p. 262 ; pl. 81, fig. 2.
+§ 4\. [2. _Recueil_, t. 6.](https://cdn.solaranamnesis.com/JulesSichel/Venus/recueildantiquit00ca_orig_0517.png), p. 262 ; pl. 81, fig. 2.
 
 « _On avoue, sans rougir, qu'on ne comprend rien à une pareille composition._ »
 
