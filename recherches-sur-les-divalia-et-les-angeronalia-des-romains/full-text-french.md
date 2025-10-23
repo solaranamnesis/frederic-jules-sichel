@@ -28,6 +28,8 @@
 
 ## [Troisième Section.](#troisième-section-1)
 
+# [Quatrième Partie.]()
+
 ---
 
 # Première Partie.
@@ -587,7 +589,7 @@ Les monuments inédits décrits dans les trois derniers paragraphes viennent de 
 
 *) P. 322, note 4.
 
-## Quatrième Partie.
+# Quatrième Partie.
 
 § 1\. _Historique._ Pour rendre ces recherches aussi complètes que possible, j'ai compulsé consciencieusement tous les auteurs qui se sont occupés de ce sujet, à l'exception d'un seul, _J. van Vliet, præside Christophoro Saxio, Diatribe de dea Angerona, Trajecti Batav._, 1766, in-4°, qu'aucune bibliothèque publique de Paris ne possède, et que je n'ai même pu jusqu'ici me procurer dans celles de la Hollande et de la Belgique. Aucun auteur, pas même ceux qui se sont spécialement occupés du culte de Vénus et des mystères, n'a soupçonné l'identité de Vénus et d'Angérone. Cette dernière n'est que très-superficiellement mentionnée dans les ouvrages les plus remarquables sur les religions des anciens. Dans la _Symbolique_ de M. Creuzer, son nom n'est prononcé qu'une seule fois et en passant.* Sainte-Croix, dans son _Traité des mystères_, n'en a point parlé du tout. M. Hartung* regarde Angeronia comme la déesse de l'anxiété, et comme un être directement opposé à Volupia. M. L. Lacroix* passe sous silence l'une et l'autre de ces divinités. Klausen et M. Gerhard, non plus que les autres archéologues, ne soupçonnèrent la véritable signification de cette divinité. Le premier dit* qu'elle est plutôt le gardien du secret du génie de la ville de Rome que ce génie lui-même. Le second,* en saisissant les indices fournis dans le passage déjà cité de Macrobe,* passage que, par erreur, il regarde comme le seul qui puisse nous éclairer sur Angérone, dit que le génie de la ville de Rome a été interprété tantôt comme Jupiter, tantôt comme Némésis-Hécate Rhamnusienne. Puis il ajoute les mots suivants, qui sont d'une grande vérité : « Privé que nous sommes des formules empruntées aux temples qui pourraient déterminer les rapports de ce démon énigmatique avec les autres diyinités romaines, nous pouvons à peine échapper à des procédés arbitraires, quand il s'agit ici d'interpréter ou de choisir. ... Mais peut-être que des comparaisons générales d'anciens mystères on pourrait faire ressortir une solution même pour cette énigme. » On voit que la solution s'est fait attendre jusqu'au moment où une de ces _formules empruntées aux temples_ nous a été révélée par le cachet de Sepullius Macer ; car cette pierre, fût-elle fausse, n'en doit pas moins avoir été composée avec des éléments puisés dans des monuments antiques se rapportant aux mystères et qui n'existent plus aujourd'hui. En faveur de cette assertion il suffit d'invoquer la conformité remarquable entre le sens des inscriptions de ce cachet et le résultat de nos recherches sur les figures d'Angérone.
 
