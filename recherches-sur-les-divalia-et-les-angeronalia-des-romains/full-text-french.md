@@ -52,7 +52,7 @@ Macrobe (_Saturnal._ 3., 9), après avoir rapporté que les Romains, lors du si�
 
 _Id._ (_Saturnal._ 1., 10.) « Duodecimo Kalendas Januarias feriæ sunt Divæ Angeroniæ, cui pontifices in sacello Volupiæ sacrum faciunt : quam Verrius Flaccus Angeroniam dici ait, quod angores ac animorum sollicitudines propitiata depellat. Masurius adjicit simulacrum huius deæ ore obligato atque signato in ara Volupiæ propterea collocatum, quod qui suos dolores anxietatesque dissimulant, perueniant patientiæ beneficio ad maximam voluptatem. Julius Modestus ideo sacrificari huic deæ dicit, quod populus romanus morbo, qui angina dicitur, præmisso voto sit liberatus. »
 
-Festus v. Angeronalia. « Angeronæ deæ sacra à Romanis instituta sunt, quum angina omne genus animalium consumeretur : cuius festa Angeronalia dicebantur. »
+Festus v. Angeronalia. « Angeronæ deæ sacra a Romanis instituta sunt, quum angina omne genus animalium consumeretur : cuius festa Angeronalia dicebantur. »
 
 Plin. _H. N._ 28., c. 2, s. 4. « Verrius Flaccus auctores ponit, quibus credat, in oppugnationibus ante omnia solitum a Romanis sacerdotibus evocari deum, cujus in tutela id oppidum esset : promittique illi eundem aut ampliorem apud Romanos cultum. Et durat in pontificum disciplina id sacrum : constatque ideo occultatum, in cujus dei tutela Roma esset, ne qui hostium simili modo agerent. »
 
