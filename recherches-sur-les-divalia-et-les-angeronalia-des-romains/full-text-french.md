@@ -605,4 +605,47 @@ Les monuments inédits décrits dans les trois derniers paragraphes viennent de 
 
 *) Voy. _Revue Archéologique_, 2e année, p. 636, en haut.
 
-...
+§ 2\. _Conclusion._ D'après tout ce qui a été dit jusqu'ici, l'identité qui existe entre Angerona, Volupia, Vénus et Cybèle, dans le culte de l'ancienne Rome, ne nous semble pas douteuse. Nous avons encore à mentionner Junon et Ops, divinités qui, conformément à la teneur d'un passage déjà rapporté,* avaient été regardées, d'après certaines autorités citées par Macrobe, comme le génie tutélaire de Rome. Elles aussi se confondaient avec Vénus-Angérone, ou lui étaient substituées successivement.* Junon était synonyme de la Mère des dieux. On représentait l'image d'Astarté-Cybèle à Hiérapolis sous la forme de Junon, avec la tour et le sceptre de Cybèle et la ceinture ([GREEK]) de Vénus-Uranie.* La truie blanche, si importante dans les mystères de Vénus Énéade,* a été sacrifiée à Junon la grande déesse ; et si Virgile, avec une emphase extraordinaire et néanmoins avec une certaine hésitation, dit, à cette occasion* : _sus, Quam pius Æneas tibi enim, tibi, maxuma Juno, Mactat sacra ferens_ ; cela me semble indiquer que, initié peut-être comme ami de la famille julienne aux secrets de la religion de l'État, il n'osait révéler autrement que par une réticence l'identité de cette Junon la grande déesse avec la Mère des dieux, c'est-à-dire avec Vénus-Cybèle, déesse tutélaire de Rome.* Cette même identité avec les déesses de la reproduction et de la fécondité ressort mieux encore dans Juno Lucina. C'est pour cette raison, et pour donner le change à l'indiscrète curiosité des profanes, que les triumvirs monnayeurs, prêtres de la religion de l'État, avaient mis le système monétaire de Rome sous le patronage de Juno Moneta, dont la tête, sur les médailles,* est absolument celle de Venus Genitrix. Quant à Ops elle-même, son nom n'est qu'un de ces noms latins, tels que ceux de Volupia et d'Angerona, sous lesquels les prêtres romains avaient caché Vénus-Cybèle. Seulement ils attribuaient à Ops des points de ressemblance avec Junon qui, elle aussi, sous le nom de Lucina, quoique dans d'autres circonstances, portait secours.* C'est ainsi qu'Ops pouvait être regardée comme cette déesse tutélaire obscure « qui était inconnue même des plus savants.* » Aussi un vieux glossaire,* en définissant Angérone : [GREEK], vient-il corroborer l'opinion qu'Ops Consivia, ainsi appelée, comme Consus,* _a consiliis_, n'était autre qu'Angeronia. On substituait Jupiter lui-même à la divinité tutélaire, pour ne pas le frustrer d'un culte qui était dû au maître de la terre et des cieux. De là vient qu'on voit sa tête sur des monnaies dont le revers porte Venus Victrix avec l'inscription _Roma_.
+
+§ 2\. 1. Voy. _Revue Archéologique_, 2e année, p. 636, en haut.
+
+*) Il n'est pas impossible que la déesse Tacita, mentionnée par Plutarque (_Numa_, c. 8) et Ovide (_Fast._ 2., 569, sqq. et surtout 581), se rapporte également à Angérone. Toutefois c'est une question difficile à résoudre.
+
+*) Lucian., _de Dea syria_, § 32, p. 478, ed. Hemsterh.
+
+*) Voy. troisième partie, sect. 1., § 5.
+
+*) _Æn._ 8., 83, sqq.
+
+*) Servius _ad loc. cit._ Quæsitum est quæ sit Juno maxima. Nam, ut diximus, variæ sunt ejus potestates : ut Curetis, Lucina, Matrona, Regina. Et dicunt theologi ipsam esse matrem Deûm, quæ Terra dicitur, unde etiam porca ei sacrificatur. Ergo perite elegit epitheton, ut maximam diceret.
+
+*) _Carisia_, Mor. 3., 4.
+
+*) _Juno Lucina, fer opem !_ Terent. _Andr._ 3., 1., 15. --- _Ipse_ (Jupiter) _sit Lucina, quæ a parturientibus invocetur ; ipse opem ferat nascentibus, excipiendo in sinu terræ, et vocetur Opis._ S. Augustin. _Civ. D._ 4., 11.
+
+*) Macrob. _loc. cit._ Voy. p. 371, n. 1.
+
+*) Salmas. _ad Solin._ c. 1.
+
+*) Festus, v. _Consulia._ Consus quem Deum consilii putabant. --- S. Augustin. _Civ. D._ 4., 11. (Jupiter) Ipse sit et Deus Consus, præbendo consilia. --- Une autre étymologie fait dériver le nom Consivia _a conserendo_.
+
+Le polythéisme romain forme de cette manière un cercle fermé de toutes parts, dans lequel se trouvent comprises les divinités nationales et étrangères, rangées autour de Vénus-Cybèle. C'est vers celle-ci qu'elles convergent toutes. Ses représentants les plus importants étaient Angérone, Volupia, Ops et même les Pénates, c'est-à-dire les Dioscures. Junon, Diane, Minerve, Isis, et jusqu'aux dieux mâles, tels que Jupiter, avaient leur part dans ce culte primitivement consacré à la Nature créatrice, mère de tous les êtres.*
+
+La vraie signification de ces divinités, leurs noms véritables et pour ainsi dire intimes, surtout le nom hiératique du génie tutélaire de Rome, d'après les lois religieuses sur lesquelles des auteurs dignes de foi ne nous laissent aucune espèce de doute, devaient rester cachés pour les masses, et n'étaient connus que des prêtres et d'un petit nombre d'initiés. Nous insistons de nouveau sur cette idée qui, loin d'être imaginaire, nous semble reposer sur des bases solides. Elle est encore confirmée par un passage très-explicite de Servius* que nous avons oublié de rapporter.
+
+Sans parler de l'exécution déjà mentionnée de Valerius Soranus, Denys d'Halicarnasse* et Ovide* nous fournissent des exemples de ce scrupule religieux qui interdisait d'appeler par son vrai nom la divinité protectrice, pour laquelle les Romains professaient une si haute vénération. Il ne faut pas chercher d'autre cause à l'absence de nom latin ou grec chez les anciens Romains pour exprimer Vénus, non plus qu'au silence complet des Saliens qui, dans leurs chants, ne font aucune mention de cette déesse.* Dans les temps primitifs de Rome, elle n'était invoquée ostensiblement que sous les noms de Volupia, d'Angeronia, d'Ops ou des autres divinités qu'on lui substituait.
+
+Ce travail, assurément, à cause de la nouveauté et de l'importance du sujet, comporterait des développements plus étendus ; mais actuellement ni le temps ni les dimensions d'une publication mensuelle, ne nous permettent de nous y livrer.
+
+*) Apulei _Metamorph._ l. 11., _paulo post initium_ : Rerum Natura parens, elementorum omnium domina ... cujus numen unicum, multiformi specie, ritu vario, nomine multijugo, totus veneratur orbis. Me primigenii Phryges Pessinunticam nominant deum matrem ; hinc Autochthones Attici Cecropiam Minervam ; illinc fluctuantes Cyprii Paphiam Venerem ; Cretes sagittiferi Dictynnam Dianam ; ... Junonem alii ; ... et ... Æthiopes, Ariique, priscaque doctrina pollentes Ægyptii ... appellant vero nomine Reginam Isidem.  
+Sur l'analogie entre Vénus et Isis comparez aussi p. 334, n. 21, et troisième partie, sect. 3., § 3., n. 2.
+
+*) _Æn._ 2., 351. _Excessere omnes templis adytisque relictis Di quibus imperium hoc steterat._ Quia ante expugnationem evocabantur ab hostibus numina, propter vitanda sacrilegia. Inde est, quod Romani celatum esse voluerunt, cujus dei tutela urbs Roma sit, et jure pontificum cautum est, ne suis nominibus dii Romani appellarentur, ne exaugurari possint, etc.
+
+*) _Antiq. rom._, l. 1., 67 fin. 68 init.
+
+*) _Metamorph._ 15., 867, sqq.
+
+*) Macrob. _Saturn._ 1., 12.
+
+Si quelques-unes de nos opinions et de nos conjectures semblent trop hasardées, nous prions les lecteurs de ne pas oublier qu'elles ne sont, pour ainsi dire, que le résumé des idées développées dans la deuxième partie supprimée par manque d'espace. Nous avons donc l'espoir que, jusqu'à sa publication, on voudra bien ne pas juger trop sévèrement celles de nos assertions dont l'exactitude, quant à présent, ne paraîtrait pas suffisamment démontrée.
