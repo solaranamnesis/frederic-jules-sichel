@@ -579,6 +579,8 @@ La coiffure, la nudité complète, les formes du torse, la position des mains, e
 
 § 5\. Parmi ces épingles, il y en a une autre en cuivre, dont la partie supérieure porte une figurine très-fruste, mais dans laquelle je crois reconnaître une Angérone mâle, ou plutôt une statuette tout à fait semblable à celle décrite, dans le § 7 de la 1re section,* par M. Gerhard, qui la rapporte au culte de Bacchus à tête de lion.
 
+*) P. 325, alinéa 2 et 3.
+
 Le côté antérieur de cette figurine me semble présenter les particularités suivantes, que, néanmoins, vu son état de dégradation, je n'ose donner comme positives. La tête, sur laquelle la main droite est appliquée, est celle d'un lion ; les parties génitales indiquent un homme ; l'avant-bras gauche occupe la partie postérieure et inférieure du corps.
 
 Le dos et le derrière de la tête sont tellement altérés qu'on ne saurait juger si primitivement une seconde figure était adossée à celle que je viens de décrire ; mais je penche pour l'affirmative.
