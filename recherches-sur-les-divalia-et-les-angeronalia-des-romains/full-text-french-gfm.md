@@ -406,112 +406,119 @@ Si quelques-unes de nos opinions et de nos conjectures semblent trop hasardées,
 [^28]: Comparez sous ce rapport l'important passage de Codinus, cité dans la note 4 du § 1. de la sect. 3.
 [^29]: _Nouvelles Annales_, publiées par la section française de l'Institut archéologique, t. 1. Paris, 1836, p. 161 et suiv. F. Lajard, _Mém. sur la Vénus orientale androgyne_. J'avais déjà réuni, de nombreux passages sur cette déesse fort importante pour mon sujet, lorsque j'eus connaissance de ce beau travail qui me permit de me dispenser de la continuation de ces recherches.
 [^30]: A. Brayer, _Neuf années à Constantinople_. Paris, 1836, in-8, t. 1., p. 183 _et passim_.
-[^31]: Voy. sect. 2., § 1., et pl. 51, fig. 13.
-[^32]: On a vu, § 2., n. 3, que dans le t. 4. Caylus est revenu sur cette opinion fort juste ou l'a oubliée.
-[^33]: _Dionys. Perieg._ v. 852. Ἄσπενδος, ποταμοῖο παρὰ ῥόον Εὐρυμέδοντος, Ἔνθα συοκτονίῃσι Διωναίην ἱλάονται. _Schol._ Ὅτι ἐν Ἀσπένδῳ τῇ Παμφυλικῇ πόλει ... συῶν θυσίαις ἱλάσκεται Ἀφροδίτη, ὅ ἐστι θεραπεύεται.
-[^34]: _Strab._ 9., p. 438. Καλλίμαχός φησι ἐν τοῖς ἰαμβοῖς, τὰς Ἀφροδίτας, ἡ θεὸς γὰρ οὐ μία, τὴν Καστινήτην [leg. Καστνιῆτιν] ὑπερβάλλεσθαι πάσας τὸ φρονεῖν, ὃτι μόνη παραδέχεται τὴν τῶν ὑῶν θυσίαν.
-[^35]: _Steph. Byz._, v. Κάσταξ : Ὁ Ἀππιανός φησι · Κάστνιον ὅρος ἑν Ἀσπένδῳ τῆς Παμφυλίας. Τὸ ἐθνικόν, Κάστνιος, ἐξ οὗ καὶ Καστνιήτης.
-[^36]: _Lycophr._ 1234. Ὁ Καστνίας τε τῆς τε Χοιράδος γόνος.
-[^37]: _Athenæus_ 3., p. 95, f. Ὅτι δὲ ὄντως Ἀφροδίτῃ ὗς θύεται, μαρτυρεῖ Καλλίμαχος, ἢ Ζηνόδοτος, ἐν Ἱστορικοῖς Ὑπομνήμασι, γράφων ὧδε Ἀργεῖοι Ἀφροδίτῃ ὗν θύουσι, καὶ ἡ ἑορτὴ καλεῖται Ὑστηρία.
-[^38]: _Strab._ 14., p. 667, _D._ Ἄσπενδος πόλις, Ἀργείων κτίσμα.
-[^39]: _Athen._ loc. cit. Ἀντιφάνης, Κορινθίᾳ · ... ἐν τῇ Κύπρῳ οὓτω φιληδεῖ ταῖς ὑσί (Ἀφροδίτη), ὥς τε σκατοφαγεῖν ἀπεῖρξε τὸ ζῶον, τοὺς δὲ βοῦς ἠνάγκασεν.
-[^40]: _Pausan._ 6., c. 2., 2. Κύπριοι δὲ ὡς καὶ ὑσὶν ἐπεξευρόντες εἰσὶ μαντεύεσθαι.
-[^41]: _Pausan._ 7., c. 17., 5. Ἄλλοι τε τῶν Λυδῶν καὶ αὐτὸς Ἄττης ἀπέθανεν ὑπὸ τοῦ ὑός. Aussi voit-on un sanglier offert en sacrifice à Cybèle chez Maffei (_Gemm. antich._ 2., 38).
-[^42]: _Pausan._ 2., c. 10., 4. Τῶν δὲ ἱερείων τοὺς μηροὺς θύουσι (τῇ Ἀφροδίτῃ), πλὴν ὑῶν.
-[^43]: _Dionys. Halic._ 1., 55, p. 141, lin. 3 et 11 Reisk. ; p. 143, lin. 16. _Virg. Æn._ 3., 390 ; 8., 81. _Heine Excurs._ 2. ad Æn. 7., p. 129, ed. 3.
-[^44]: _Varro_ de L. L., 4., p. 40. Bipont. Oppidum Alba a sue alba cognominatum. Hæc e nave Æneæ cum fugisset Lavinium, triginta parit porcos. _Lycophr._ v. 1256. Συὸς κελαινῆς, ἣν ἀπ' Ἰδαίων λόφων ... ναυσθλώσεται.
-[^45]: _Dionys._ 1., 57, p. 144, lin. 2. Αἰνείας δὲ τῆς μὲν ὑὸς τὸν τόκον ἅμα τῇ γειναμένῃ τοῖς πατρῴοις ἁγίζει θεοῖς. Le mot ἁγίζει ne désigne pas simplement un _sacrifice_ (_immolavit_ dans la traduction latine) mais encore une _consécration_. Aussi Denys ajoute-t-il qu'au même endroit une chapelle fut érigée, qui existait encore de son temps, et dont l'accès, comme d'un sanctuaire, était défendu aux profanes. Il s'agit encore ici d'un des mystères de Vénus Énéade.
-[^46]: _Virg. Æn._ 8., 641 ; 12., 170. _Liv._ 1., 24. _Morell._ Antistia A, B ; Incert. t. 1., 3., C, D.
-[^47]: Sulpicia, _Morell._ t. 2, 3. ; _Riccio_ 1. et suppl. 67. en bas. Comparez _Mor. Vetturia_, 1. et 2.
-[^48]: Voy. sect. 2., § 3., après les notes 11 et 13, et le chapitre 1. de la deuxième partie.
-[^49]: Voir notre pl. 51, fig. 7.
-[^50]: _Roman. Mus._ T. 1., sect. 2., tab. 36. Voy. notre pl. 51, fig. 9.
-[^51]: Voy. sect. 2., § 4., et pl. 51, fig. 8.
+[^31]: _Recueil_, t. 2., pl. 79.
+[^32]: Voy. sect. 2., § 1., et pl. 51, fig. 13.
+[^33]: On a vu, § 2., n. 3, que dans le t. 4. Caylus est revenu sur cette opinion fort juste ou l'a oubliée.
+[^34]: _Dionys. Perieg._ v. 852. Ἄσπενδος, ποταμοῖο παρὰ ῥόον Εὐρυμέδοντος, Ἔνθα συοκτονίῃσι Διωναίην ἱλάονται. _Schol._ Ὅτι ἐν Ἀσπένδῳ τῇ Παμφυλικῇ πόλει ... συῶν θυσίαις ἱλάσκεται Ἀφροδίτη, ὅ ἐστι θεραπεύεται.
+[^35]: _Strab._ 9., p. 438. Καλλίμαχός φησι ἐν τοῖς ἰαμβοῖς, τὰς Ἀφροδίτας, ἡ θεὸς γὰρ οὐ μία, τὴν Καστινήτην [leg. Καστνιῆτιν] ὑπερβάλλεσθαι πάσας τὸ φρονεῖν, ὃτι μόνη παραδέχεται τὴν τῶν ὑῶν θυσίαν.
+[^36]: _Steph. Byz._, v. Κάσταξ : Ὁ Ἀππιανός φησι · Κάστνιον ὅρος ἑν Ἀσπένδῳ τῆς Παμφυλίας. Τὸ ἐθνικόν, Κάστνιος, ἐξ οὗ καὶ Καστνιήτης.
+[^37]: _Lycophr._ 1234. Ὁ Καστνίας τε τῆς τε Χοιράδος γόνος.
+[^38]: _Athenæus_ 3., p. 95, f. Ὅτι δὲ ὄντως Ἀφροδίτῃ ὗς θύεται, μαρτυρεῖ Καλλίμαχος, ἢ Ζηνόδοτος, ἐν Ἱστορικοῖς Ὑπομνήμασι, γράφων ὧδε Ἀργεῖοι Ἀφροδίτῃ ὗν θύουσι, καὶ ἡ ἑορτὴ καλεῖται Ὑστηρία.
+[^39]: _Strab._ 14., p. 667, _D._ Ἄσπενδος πόλις, Ἀργείων κτίσμα.
+[^40]: _Athen._ loc. cit. Ἀντιφάνης, Κορινθίᾳ · ... ἐν τῇ Κύπρῳ οὓτω φιληδεῖ ταῖς ὑσί (Ἀφροδίτη), ὥς τε σκατοφαγεῖν ἀπεῖρξε τὸ ζῶον, τοὺς δὲ βοῦς ἠνάγκασεν.
+[^41]: _Pausan._ 6., c. 2., 2. Κύπριοι δὲ ὡς καὶ ὑσὶν ἐπεξευρόντες εἰσὶ μαντεύεσθαι.
+[^42]: _Pausan._ 7., c. 17., 5. Ἄλλοι τε τῶν Λυδῶν καὶ αὐτὸς Ἄττης ἀπέθανεν ὑπὸ τοῦ ὑός. Aussi voit-on un sanglier offert en sacrifice à Cybèle chez Maffei (_Gemm. antich._ 2., 38).
+[^43]: _Pausan._ 2., c. 10., 4. Τῶν δὲ ἱερείων τοὺς μηροὺς θύουσι (τῇ Ἀφροδίτῃ), πλὴν ὑῶν.
+[^44]: _Dionys. Halic._ 1., 55, p. 141, lin. 3 et 11 Reisk. ; p. 143, lin. 16. _Virg. Æn._ 3., 390 ; 8., 81. _Heine Excurs._ 2. ad Æn. 7., p. 129, ed. 3.
+[^45]: _Varro_ de L. L., 4., p. 40. Bipont. Oppidum Alba a sue alba cognominatum. Hæc e nave Æneæ cum fugisset Lavinium, triginta parit porcos. _Lycophr._ v. 1256. Συὸς κελαινῆς, ἣν ἀπ' Ἰδαίων λόφων ... ναυσθλώσεται.
+[^46]: _Dionys._ 1., 57, p. 144, lin. 2. Αἰνείας δὲ τῆς μὲν ὑὸς τὸν τόκον ἅμα τῇ γειναμένῃ τοῖς πατρῴοις ἁγίζει θεοῖς. Le mot ἁγίζει ne désigne pas simplement un _sacrifice_ (_immolavit_ dans la traduction latine) mais encore une _consécration_. Aussi Denys ajoute-t-il qu'au même endroit une chapelle fut érigée, qui existait encore de son temps, et dont l'accès, comme d'un sanctuaire, était défendu aux profanes. Il s'agit encore ici d'un des mystères de Vénus Énéade.
+[^47]: _Virg. Æn._ 8., 641 ; 12., 170. _Liv._ 1., 24. _Morell._ Antistia A, B ; Incert. t. 1., 3., C, D.
+[^48]: Sulpicia, _Morell._ t. 2, 3. ; _Riccio_ 1. et suppl. 67. en bas. Comparez _Mor. Vetturia_, 1. et 2.
+[^49]: Voy. sect. 2., § 3., après les notes 11 et 13, et le chapitre 1. de la deuxième partie.
+[^50]: Voir notre pl. 51, fig. 7.
+[^51]: _Roman. Mus._ T. 1., sect. 2., tab. 36. Voy. notre pl. 51, fig. 9.
 [^52]: Voy. sect. 2., § 4., et pl. 51, fig. 8.
-[^53]: Voy. sect. 2., § 2., pl. 51, fig. 12.
-[^54]: Voy. § 3. et 4. et pl. 51, fig. 2.
-[^55]: _Loc. cit._ p. 38, _med._
-[^56]: Sect. 1., § 2.
-[^57]: P. 45, n. 72.
-[^58]: Voy. sect. 3., § 1., notes 4 et 5.
-[^59]: Pl. 12, fig. 10. Voy. notre pl. 51, fig. 10.
-[^60]: Voy. 4e partie, § 2., notes 11 et 12.
-[^61]: Voy. sect. 2., § 3.
-[^62]: Voy. sect. 1., § 4.
-[^63]: P. 41, n. 40-42.
-[^64]: Année 1827, p. 349.
-[^65]: Voy. troisième partie, sect. 1., § 2., et notre pl. 51, fig. 5.
-[^66]: Voy. le § précédent, note 3, et l'ouvrage cité de M. Gerhard, pl. 12., fig. 7.
-[^67]: Voy. _Revue Archéologique_, 2e année, p. 635 et suiv.
-[^68]: Voy. _Revue Archéologique_, 2e année, p. 636, deuxième alinéa, et p. 639, à la fin du premier alinéa.
-[^69]: P. 374.
-[^70]: Jo. Goropii Becani _Opera_, etc. Antverp. 1580, in-fol. _Hieroglyphicor._ lib. 4., p. 49.
-[^71]: Gisb. Cuperi _Harpocrates._ Traj. ad Rhen. 1687, in-4, p. 154.
-[^72]: Euseb. _Præpar. Evang._ 3., 11, p. 66. Lutet. 1544, in-fol. Μήκωνες τῆς πολυγονίας σύμβολον. Vénus chez Maffei (_Gemm. ant. fig._ P. 3., t. 3), et Cybèle chez Montfaucon (_Ant. expl._ t. 1., première partie, pl. 3, fig. 10) tiennent chacune deux pavots à la main. Pausanias aussi (2., c. 10., 4) décrit une statue d'Aphrodite qui porte une tête de pavot dans l'une des mains.
-[^73]: Lajard, _Mém. sur la Vénus Androgyne_, _loc. cit._, p. 165, 169, 177.
-[^74]: Vénus porte un flambeau dans beaucoup de monuments antiques, comme, par exemple, chez Maffei, _Gemm. ant. fig._ 2., 74 ; 3., 2 et 9.
-[^75]: Plin. _H. N._ 33., 12, ed. Bipont. Jam vero etiam Harpocratem, statuasque Ægyptiorum numinum, in digitis viri quoque portare incipiunt.
-[^76]: Gorop. _loc. laud._, p. 48, _infrà._ « Priorem imaginem Pighius, curiosissimus Romæ veteris explorator, et plurimorum mihi per totum Latium priscæ memoriæ vestigiorum præmonstrator, se fatetur a Pyrrho Ligorio, Neapolitano, diligentissimo item antiquario, accepisse. » Voici à quoi se réduit, mot pour mot, tout ce que Goropius nous apprend sur cette intéressante figure.
-[^77]: _Gemm. ant. fig._ 2., 20.
-[^78]: Julia, t. 4, 6.
-[^79]: _Roman. Museum_, t. 1., sect. 1., tab. 64.
-[^80]: Voy. sect. 2., § 3., note 20.
-[^81]: Voy. sect. 2., § 3., note 13.
-[^82]: Voy. sect. 2., § 3., note 18.
-[^83]: Laur. Pignorius, _Vetustissimæ tabulæ æneæ sacris Ægyptiorum simulacris cælatæ explicatio._ Venet., 1605, in-4. ([Pl. 2., dernière figure.](https://cdn.solaranamnesis.com/JulesSichel/Venus/pignoria-l-vetustissimae-1605-RTL013110_0106.png))
-[^84]: _Antiq. expl._, t. 1., 2e partie, pl. 213, p. 359, 4.
-[^85]: Voy. ci-dessus, sect. 1., § 2., et pl. 51, fig. 5.
-[^86]: _Cornelia_, Morell. t. 6, 4., Riccio, 9, n. 38.
-[^87]: _Curtia_, M. 4., R. 2.
-[^88]: _Opeimia_, M. 2., R. suppl. 2.
-[^89]: _Acilia_, M. t. 1, 5., R. 5.
-[^90]: _Antia_, M. 2., R. 2.
-[^91]: Voy. p. 232, note 17.
-[^92]: _Gemm. ant. fig._, 4., 82.
-[^93]: Voy. la _Revue Archéologique_, 2e année, au bas de la p. 641. Ce que nous avons dit, dans ce passage cité, des deux étoiles de Vénus et, à la même page, de ses deux colombes placées sur une monnaie de Marc-Antoine, est confirmé par plusieurs médailles grecques de Cypre, où ces étoiles et ces oiseaux figurent au-dessus de la pierre conique qui représente symboliquement Aphrodite. Voy. Lajard, _Mém. sur la Vénus androgyne_, _loc. cit._, p. 203, et pl. 4., n°s 10, 11 et 12.
-[^94]: Maffei, _Gemm. ant. fig._, 3., 14.
-[^95]: Morell. _Fonteia_, D.
-[^96]: Maffei, _Gemm. ant. fig._, 3., 8.
-[^97]: Ovid. _Fast._ 5., 115-128.
-[^98]: Apollodor. 1., 1, s. 7. Hygin. _Astron._ 1., 13, p. 448, ed. Staveren. Muncker sur Hygin, p. 300, 12.
-[^99]: Voy. note 20.
-[^100]: _Gemm. ant. fig._, 3., 66.
-[^101]: _Roman. Mus._, sect. 2., tab. 31 et 32.
-[^102]: Comparez entre elles, et avec Maffei _Gemm. ant. fig._ 2., 75, les médailles suivantes : _Carisia_, Morell. 6. ; Riccio, 1, 2. _Considia_, R. 9. _Julia_, M. t. 1, 8. ; R. 6. M. t. 1, 7., N ; R. 7 ; M. t. 4, A ; M. t. 7, H ; R. 75. _Luria_, M. 3. ; R. 2. _Mœcilia_, M. B, C ; R. 1. _Mussidia_, M. 6., F, G ; R. 1. _Oppia_, M. 1., A, B ; R. 2. (Ici Venus Victrix, en place de la corne d'abondance, tient une patère remplie de fruits, comme Isis chez Jac. Oisel. _Thesaur. numism._, t. 47, n. 5.) _Sempronia_, M. 5. ; R. 9. _Tullia_, R. 3.
-[^103]: Voy. sect. 3., § 1., n. 6, et 4e partie, § 2., n. 9 b. Comparez p. 333, à la fin de la n. 20.
-[^104]: Maffei, _Gemm. ant. fig._, 2., 15, et surtout De la Chausse, _Roman. Mus._ T. 1., sect. 5., tab. 8.
-[^105]: Lajard, _Mém. sur la Vénus Androgyne_, loc. cit., p. 177.
-[^106]: Serv. _ad Æn._ 2., 351.
-[^107]: Voy. _Revue Archéologique_, 2e année, p. 636.
-[^108]: Joh. Lydus, _de Mensib._, ed. Rœther, p. 25. Codinus (_Selecta de originib. constantinopolitanis._ Aurel. Allobrog. 1607, in-8, p. 45) dit avoir vu à Constantinople la statue de l'Aphrodite bisexuelle. Il ajoute expressément que cette Vénus, révérée par les Romains, était figurée avec les attributs des deux sexes, pour indiquer qu'elle présidait à la reproduction de l'espèce (ἔφορος γενέσεως), et qu'Énée avait érigé en l'honneur de sa mère un simulacre ayant cette forme (τὴν μητέρα ἐτίμησε τοιούτῳ ἀγάλματι).
-[^109]: Voy. troisième partie, p. 224, note 1.
-[^110]: _De L. L._ 4., p. 17, ed. Bipont. Principes dei, Cœlum et Terra ; hi dei iidem, qui in Ægypto Serapis et Isis, et st [etsi ? ] Harpocrates digito [silentium ? ] significat ; qui sunt Taautes et Astarte apud Phœnicas, ut iidem principes in Latio Saturnus et Ops.
-[^111]: Voy. p. 323, n. 4.
-[^112]: Voy. sect. 2., § 3., avant la note 4.
-[^113]: Sect. 2., § 1., note 5.
-[^114]: Philostrat. _Icon._ 1., 6, ed. Olear. p. 772. Λαγώς, ἱερεῖον Ἀφροδίτῃ ἥδιστον. Eustath. _ad Iliad._ A, 206, p. 87. Καὶ λαγωὸς ἐρώτων ἀνάθημα.
-[^115]: Herodot. 3., 108, copié par Pline, _H. N._ 8., 55, § 81.
-[^116]: Plin. _H. N._ 8., 55, § 81. Ælian. _de Anim. nat._ 13., 12. _Geoponic._, 19., 4. Cette erreur reposait peut-être sur la fausse interprétation et l'amplification d'une particularité observée par Aristote (_H. A._ 5., 2) : pendant l'accouplement la femelle monte quelquefois sur le mâle. Dans le siècle dernier cette fable n'avait pas encore perdu toute croyance. Voy. Niclas _sur les Géoponiques_, p. 1219.
-[^117]: Varro, _loc. cit._ Voy. ci-dessus, p. 366, n. 6.
-[^118]: P. 325, alinéa 2 et 3.
-[^119]: P. 322, note 4.
-[^120]: _Die Religion der Rœmer_, t. 2., p. 247.
-[^121]: _La Religion des Romains._ Paris, 1846.
-[^122]: Klausen, _Æneas und die Penaten_, t. 2., p. 1037. Hamburg, 1840.
-[^123]: Ed. Gerhard, _Prodromus mythologischer Kunsterklærung_, p. 103, note 145. Muenchen, 1828.
-[^124]: Voy. _Revue Archéologique_, 2e année, p. 636, en haut.
-[^125]: Il n'est pas impossible que la déesse Tacita, mentionnée par Plutarque (_Numa_, c. 8) et Ovide (_Fast._ 2., 569, sqq. et surtout 581), se rapporte également à Angérone. Toutefois c'est une question difficile à résoudre.
-[^126]: Lucian., _de Dea syria_, § 32, p. 478, ed. Hemsterh.
-[^127]: Voy. troisième partie, sect. 1., § 5.
-[^128]: _Æn._ 8., 83, sqq.
-[^129]: Servius _ad loc. cit._ Quæsitum est quæ sit Juno maxima. Nam, ut diximus, variæ sunt ejus potestates : ut Curetis, Lucina, Matrona, Regina. Et dicunt theologi ipsam esse matrem Deûm, quæ Terra dicitur, unde etiam porca ei sacrificatur. Ergo perite elegit epitheton, ut maximam diceret.
-[^130]: _Carisia_, Mor. 3., 4.
-[^131]: _Juno Lucina, fer opem !_ Terent. _Andr._ 3., 1., 15. --- _Ipse_ (Jupiter) _sit Lucina, quæ a parturientibus invocetur ; ipse opem ferat nascentibus, excipiendo in sinu terræ, et vocetur Opis._ S. Augustin. _Civ. D._ 4., 11.
-[^132]: Macrob. _loc. cit._ Voy. p. 371, n. 1.
-[^133]: Salmas. _ad Solin._ c. 1.
-[^134]: Festus, v. _Consulia._ Consus quem Deum consilii putabant. --- S. Augustin. _Civ. D._ 4., 11. (Jupiter) Ipse sit et Deus Consus, præbendo consilia. --- Une autre étymologie fait dériver le nom Consivia _a conserendo_.
-[^135]: Apulei _Metamorph._ l. 11., _paulo post initium_ : Rerum Natura parens, elementorum omnium domina ... cujus numen unicum, multiformi specie, ritu vario, nomine multijugo, totus veneratur orbis. Me primigenii Phryges Pessinunticam nominant deum matrem ; hinc Autochthones Attici Cecropiam Minervam ; illinc fluctuantes Cyprii Paphiam Venerem ; Cretes sagittiferi Dictynnam Dianam ; ... Junonem alii ; ... et ... Æthiopes, Ariique, priscaque doctrina pollentes Ægyptii ... appellant vero nomine Reginam Isidem. Sur l'analogie entre Vénus et Isis comparez aussi p. 334, n. 21, et troisième partie, sect. 3., § 3., n. 2.
-[^136]: _Æn._ 2., 351. _Excessere omnes templis adytisque relictis Di quibus imperium hoc steterat._ Quia ante expugnationem evocabantur ab hostibus numina, propter vitanda sacrilegia. Inde est, quod Romani celatum esse voluerunt, cujus dei tutela urbs Roma sit, et jure pontificum cautum est, ne suis nominibus dii Romani appellarentur, ne exaugurari possint, etc.
-[^137]: _Antiq. rom._, l. 1., 67 fin. 68 init.
-[^138]: _Metamorph._ 15., 867, sqq.
-[^139]: Macrob. _Saturn._ 1., 12.
+[^53]: Voy. sect. 2., § 4., et pl. 51, fig. 8.
+[^54]: Voy. sect. 2., § 2., pl. 51, fig. 12.
+[^55]: Voy. § 3. et 4. et pl. 51, fig. 2.
+[^56]: _Loc. cit._ p. 38, _med._
+[^57]: Sect. 1., § 2.
+[^58]: P. 45, n. 72.
+[^59]: Voy. sect. 3., § 1., notes 4 et 5.
+[^60]: Pl. 12, fig. 10. Voy. notre pl. 51, fig. 10.
+[^61]: Voy. 4e partie, § 2., notes 11 et 12.
+[^62]: Voy. sect. 2., § 3.
+[^63]: Voy. sect. 1., § 4.
+[^64]: P. 41, n. 40-42.
+[^65]: Année 1827, p. 349.
+[^66]: Voy. troisième partie, sect. 1., § 2., et notre pl. 51, fig. 5.
+[^67]: Voy. le § précédent, note 3, et l'ouvrage cité de M. Gerhard, pl. 12., fig. 7.
+[^68]: Voy. _Revue Archéologique_, 2e année, p. 635 et suiv.
+[^69]: Voy. _Revue Archéologique_, 2e année, p. 636, deuxième alinéa, et p. 639, à la fin du premier alinéa.
+[^70]: P. 374.
+[^71]: Jo. Goropii Becani _Opera_, etc. Antverp. 1580, in-fol. _Hieroglyphicor._ lib. 4., p. 49.
+[^72]: Gisb. Cuperi _Harpocrates._ Traj. ad Rhen. 1687, in-4, p. 154.
+[^73]: Euseb. _Præpar. Evang._ 3., 11, p. 66. Lutet. 1544, in-fol. Μήκωνες τῆς πολυγονίας σύμβολον. Vénus chez Maffei (_Gemm. ant. fig._ P. 3., t. 3), et Cybèle chez Montfaucon (_Ant. expl._ t. 1., première partie, pl. 3, fig. 10) tiennent chacune deux pavots à la main. Pausanias aussi (2., c. 10., 4) décrit une statue d'Aphrodite qui porte une tête de pavot dans l'une des mains.
+[^74]: Lajard, _Mém. sur la Vénus Androgyne_, _loc. cit._, p. 165, 169, 177.
+[^75]: Vénus porte un flambeau dans beaucoup de monuments antiques, comme, par exemple, chez Maffei, _Gemm. ant. fig._ 2., 74 ; 3., 2 et 9.
+[^76]: Plin. _H. N._ 33., 12, ed. Bipont. Jam vero etiam Harpocratem, statuasque Ægyptiorum numinum, in digitis viri quoque portare incipiunt.
+[^77]: Gorop. _loc. laud._, p. 48, _infrà._ « Priorem imaginem Pighius, curiosissimus Romæ veteris explorator, et plurimorum mihi per totum Latium priscæ memoriæ vestigiorum præmonstrator, se fatetur a Pyrrho Ligorio, Neapolitano, diligentissimo item antiquario, accepisse. » Voici à quoi se réduit, mot pour mot, tout ce que Goropius nous apprend sur cette intéressante figure.
+[^78]: _Gemm. ant. fig._ 2., 20.
+[^79]: Julia, t. 4, 6.
+[^80]: _Roman. Museum_, t. 1., sect. 1., tab. 64.
+[^81]: Voy. sect. 2., § 3., note 20.
+[^82]: Voy. sect. 2., § 3., note 13.
+[^83]: Voy. sect. 2., § 3., note 18.
+[^84]: Laur. Pignorius, _Vetustissimæ tabulæ æneæ sacris Ægyptiorum simulacris cælatæ explicatio._ Venet., 1605, in-4. ([Pl. 2., dernière figure.](https://cdn.solaranamnesis.com/JulesSichel/Venus/pignoria-l-vetustissimae-1605-RTL013110_0106.png))
+[^85]: _Antiq. expl._, t. 1., 2e partie, pl. 213, p. 359, 4.
+[^86]: Voy. ci-dessus, sect. 1., § 2., et pl. 51, fig. 5.
+[^87]: _Cornelia_, Morell. t. 6, 4., Riccio, 9, n. 38.
+[^88]: _Curtia_, M. 4., R. 2.
+[^89]: _Opeimia_, M. 2., R. suppl. 2.
+[^90]: _Acilia_, M. t. 1, 5., R. 5.
+[^91]: _Antia_, M. 2., R. 2.
+[^92]: Voy. p. 232, note 17.
+[^93]: _Gemm. ant. fig._, 4., 82.
+[^94]: Voy. la _Revue Archéologique_, 2e année, au bas de la p. 641. Ce que nous avons dit, dans ce passage cité, des deux étoiles de Vénus et, à la même page, de ses deux colombes placées sur une monnaie de Marc-Antoine, est confirmé par plusieurs médailles grecques de Cypre, où ces étoiles et ces oiseaux figurent au-dessus de la pierre conique qui représente symboliquement Aphrodite. Voy. Lajard, _Mém. sur la Vénus androgyne_, _loc. cit._, p. 203, et pl. 4., n°s 10, 11 et 12.
+[^95]: Maffei, _Gemm. ant. fig._, 3., 14.
+[^96]: Morell. _Fonteia_, D.
+[^97]: Maffei, _Gemm. ant. fig._, 3., 8.
+[^98]: Ovid. _Fast._ 5., 115-128.
+[^99]: Apollodor. 1., 1, s. 7. Hygin. _Astron._ 1., 13, p. 448, ed. Staveren. Muncker sur Hygin, p. 300, 12.
+[^100]: Voy. note 20.
+[^101]: _Gemm. ant. fig._, 3., 66.
+[^102]: _Roman. Mus._, sect. 2., tab. 31 et 32.
+[^103]: Comparez entre elles, et avec Maffei _Gemm. ant. fig._ 2., 75, les médailles suivantes : _Carisia_, Morell. 6. ; Riccio, 1, 2. _Considia_, R. 9. _Julia_, M. t. 1, 8. ; R. 6. M. t. 1, 7., N ; R. 7 ; M. t. 4, A ; M. t. 7, H ; R. 75. _Luria_, M. 3. ; R. 2. _Mœcilia_, M. B, C ; R. 1. _Mussidia_, M. 6., F, G ; R. 1. _Oppia_, M. 1., A, B ; R. 2. (Ici Venus Victrix, en place de la corne d'abondance, tient une patère remplie de fruits, comme Isis chez Jac. Oisel. _Thesaur. numism._, t. 47, n. 5.) _Sempronia_, M. 5. ; R. 9. _Tullia_, R. 3.
+[^104]: Voy. sect. 3., § 1., n. 6, et 4e partie, § 2., n. 9 b. Comparez p. 333, à la fin de la n. 20.
+[^105]: Maffei, _Gemm. ant. fig._, 2., 15, et surtout De la Chausse, _Roman. Mus._ T. 1., sect. 5., tab. 8.
+[^106]: Lajard, _Mém. sur la Vénus Androgyne_, loc. cit., p. 177.
+[^107]: Voy. p. 224, troisième alinéa.
+[^108]: Serv. _ad Æn._ 2., 351.
+[^109]: Voy. _Revue Archéologique_, 2e année, p. 636.
+[^110]: Joh. Lydus, _de Mensib._, ed. Rœther, p. 25. Codinus (_Selecta de originib. constantinopolitanis._ Aurel. Allobrog. 1607, in-8, p. 45) dit avoir vu à Constantinople la statue de l'Aphrodite bisexuelle. Il ajoute expressément que cette Vénus, révérée par les Romains, était figurée avec les attributs des deux sexes, pour indiquer qu'elle présidait à la reproduction de l'espèce (ἔφορος γενέσεως), et qu'Énée avait érigé en l'honneur de sa mère un simulacre ayant cette forme (τὴν μητέρα ἐτίμησε τοιούτῳ ἀγάλματι).
+[^111]: Voy. troisième partie, p. 224, note 1.
+[^112]: _De L. L._ 4., p. 17, ed. Bipont. Principes dei, Cœlum et Terra ; hi dei iidem, qui in Ægypto Serapis et Isis, et st [etsi ? ] Harpocrates digito [silentium ? ] significat ; qui sunt Taautes et Astarte apud Phœnicas, ut iidem principes in Latio Saturnus et Ops.
+[^113]: Voy. p. 323, n. 4.
+[^114]: _Harpocrates_, p. 2.
+[^115]: Voy. sect. 2., § 3., avant la note 4.
+[^116]: Sect. 2., § 1., note 5.
+[^117]: Philostrat. _Icon._ 1., 6, ed. Olear. p. 772. Λαγώς, ἱερεῖον Ἀφροδίτῃ ἥδιστον. Eustath. _ad Iliad._ A, 206, p. 87. Καὶ λαγωὸς ἐρώτων ἀνάθημα.
+[^118]: Herodot. 3., 108, copié par Pline, _H. N._ 8., 55, § 81.
+[^119]: Plin. _H. N._ 8., 55, § 81. Ælian. _de Anim. nat._ 13., 12. _Geoponic._, 19., 4. Cette erreur reposait peut-être sur la fausse interprétation et l'amplification d'une particularité observée par Aristote (_H. A._ 5., 2) : pendant l'accouplement la femelle monte quelquefois sur le mâle. Dans le siècle dernier cette fable n'avait pas encore perdu toute croyance. Voy. Niclas _sur les Géoponiques_, p. 1219.
+[^120]: Sect. 2., § 4., fin.
+[^121]: Varro, _loc. cit._ Voy. ci-dessus, p. 366, n. 6.
+[^122]: Ce paragraphe et les deux suivants complètent la première section dont ils forment les § 9. à 11.
+[^123]: P. 325, alinéa 2 et 3.
+[^124]: P. 322, note 4.
+[^125]: Ed. 2. t. 2., p. 1004 (livre 2., ch. 9.), note 248.
+[^126]: _Die Religion der Rœmer_, t. 2., p. 247.
+[^127]: _La Religion des Romains._ Paris, 1846.
+[^128]: Klausen, _Æneas und die Penaten_, t. 2., p. 1037. Hamburg, 1840.
+[^129]: Ed. Gerhard, _Prodromus mythologischer Kunsterklærung_, p. 103, note 145. Muenchen, 1828.
+[^130]: Voy. _Revue Archéologique_, 2e année, p. 636, en haut.
+[^131]: Voy. _Revue Archéologique_, 2e année, p. 636, en haut.
+[^132]: Il n'est pas impossible que la déesse Tacita, mentionnée par Plutarque (_Numa_, c. 8) et Ovide (_Fast._ 2., 569, sqq. et surtout 581), se rapporte également à Angérone. Toutefois c'est une question difficile à résoudre.
+[^133]: Lucian., _de Dea syria_, § 32, p. 478, ed. Hemsterh.
+[^134]: Voy. troisième partie, sect. 1., § 5.
+[^135]: _Æn._ 8., 83, sqq.
+[^136]: Servius _ad loc. cit._ Quæsitum est quæ sit Juno maxima. Nam, ut diximus, variæ sunt ejus potestates : ut Curetis, Lucina, Matrona, Regina. Et dicunt theologi ipsam esse matrem Deûm, quæ Terra dicitur, unde etiam porca ei sacrificatur. Ergo perite elegit epitheton, ut maximam diceret.
+[^137]: _Carisia_, Mor. 3., 4.
+[^138]: _Juno Lucina, fer opem !_ Terent. _Andr._ 3., 1., 15. --- _Ipse_ (Jupiter) _sit Lucina, quæ a parturientibus invocetur ; ipse opem ferat nascentibus, excipiendo in sinu terræ, et vocetur Opis._ S. Augustin. _Civ. D._ 4., 11.
+[^139]: Macrob. _loc. cit._ Voy. p. 371, n. 1.
+[^140]: Salmas. _ad Solin._ c. 1.
+[^141]: Festus, v. _Consulia._ Consus quem Deum consilii putabant. --- S. Augustin. _Civ. D._ 4., 11. (Jupiter) Ipse sit et Deus Consus, præbendo consilia. --- Une autre étymologie fait dériver le nom Consivia _a conserendo_.
+[^142]: Apulei _Metamorph._ l. 11., _paulo post initium_ : Rerum Natura parens, elementorum omnium domina ... cujus numen unicum, multiformi specie, ritu vario, nomine multijugo, totus veneratur orbis. Me primigenii Phryges Pessinunticam nominant deum matrem ; hinc Autochthones Attici Cecropiam Minervam ; illinc fluctuantes Cyprii Paphiam Venerem ; Cretes sagittiferi Dictynnam Dianam ; ... Junonem alii ; ... et ... Æthiopes, Ariique, priscaque doctrina pollentes Ægyptii ... appellant vero nomine Reginam Isidem. Sur l'analogie entre Vénus et Isis comparez aussi p. 334, n. 21, et troisième partie, sect. 3., § 3., n. 2.
+[^143]: _Æn._ 2., 351. _Excessere omnes templis adytisque relictis Di quibus imperium hoc steterat._ Quia ante expugnationem evocabantur ab hostibus numina, propter vitanda sacrilegia. Inde est, quod Romani celatum esse voluerunt, cujus dei tutela urbs Roma sit, et jure pontificum cautum est, ne suis nominibus dii Romani appellarentur, ne exaugurari possint, etc.
+[^144]: _Antiq. rom._, l. 1., 67 fin. 68 init.
+[^145]: _Metamorph._ 15., 867, sqq.
+[^146]: Macrob. _Saturn._ 1., 12.
